@@ -1,7 +1,11 @@
 # Chapter 5 THE ESSENCE OF GOSPEL RENEWAL
 Revival is necessary because religion ("I obey; therefore I am accepted") is so different from the gospel ("I am accepted by God through Christ; therefore I obey") but is such an effective counterfeit. Though these systems of motivation and purpose have utterly different lineages, on the surface they may look like twins. Two people basing their lives on these two systems may sit right beside each other in church. Both strive to obey the law of God, to pray, to give generously, and to be good family members. Yet they do so out of radically different motives, in radically different spirits, and resulting in radically different kinds of inner personal character. One of them (the "religious" one) may even be lost altogether. Even the one operating out of the gospel will naturally drift into religion unless constantly challenged and renewed.
 
+复兴是必要的，因为宗教（“我顺服，所以我被接纳”）与福音（“我因基督被神接纳，所以我顺服”）有着根本的不同，但宗教却是一种极具欺骗性的仿冒品。尽管这两种动力和人生目的的体系有着完全不同的来源，但从表面上看，它们可能如同双胞胎一般相似。基于这两种体系生活的两个人，甚至可能在教堂里并肩而坐。他们都努力遵守神的律法、祷告、慷慨施予，并成为良好的家庭成员。然而，他们所行之事的动机、精神状态以及最终形成的内在性格却截然不同。其中一位（“宗教的”那位）甚至可能完全迷失。而即便是那位以福音为动力的人，如果不持续接受挑战和更新，也会自然地滑向宗教化的模式。
+
 If these insights from the last chapter addressed the why of gospel renewal, the question for this chapter is the what of gospel renewal. What does the gospel do that actually changes people in a congregation? How can the distinct and unique theological truths of the gospel be formulated in ways that produce new, Spirit-led, Christ-centered motivation in people, whether their starting point is religion or irreligion? First we will look further at the distinction between religion, irreligion, and the gospel. Then we will see how these insights are applied to the heart.
+
+如果上一章所讨论的内容关注的是福音更新的“为什么”，那么本章要探讨的就是福音更新的“是什么”。福音如何真正改变教会中的人？如何将福音独特的神学真理以一种方式呈现，使人们——无论他们的起点是宗教还是不信——都能产生新的、由圣灵引导的、以基督为中心的动力？首先，我们将进一步探讨宗教、不信与福音之间的区别。然后，我们将看看如何将这些洞见应用到人的内心。
 
 ## THREE WAYS OF RESPONDING TO GOD
 Christians typically identify two ways to respond to God: follow him and do his will, or reject him and do your own thing. Ultimately this is true, but there are actually two ways to reject God that must be distinguished from one another. You can reject God by rejecting his law and living any way you see fit. And you can also reject God by embracing and obeying God's law so as to earn your salvation. The problem is that people in this last group — who reject the gospel in favor of moralism — look as if they are trying to do God's will. Consequently, there are not just two ways to respond to God but three: irreligion, religion, and the gospel.
@@ -14,12 +18,48 @@ In the New Testament, these three ways appear most prominently in Romans 1-4. Be
 
 Throughout the Gospels, these three ways — religion, irreligion, and the gospel — are repeatedly depicted in Jesus' encounters. Whether a Pharisee or a tax collector (Luke 18), a Pharisee or a fallen woman (Luke 7), or a respectable crowd and a man possessed by a demon (Mark 5), in every instance the less moral, less religious person connects more readily to Jesus. Even in John 3 and 4, where a similar contrast occurs between a Pharisee and an immoral Samaritan woman, the woman receives the gospel with joy, while Nicodemus the Pharisee evidently has to go home and think about it. Here we have the New Testament version of what we saw in earlier pages of the Bible — that God chooses the foolish things to shame the wise, the weak things to shame the strong, to show that his salvation is by grace (see 1 Cor 1:26-31).
 
+基督徒通常认为，人对神的回应方式只有两种：要么跟随祂、遵行祂的旨意，要么拒绝祂、按照自己的方式生活。虽然这在最终意义上是正确的，但实际上，拒绝神的方式有两种不同的形式，需要加以区分。  
+
+1. **拒绝神的律法**，按照自己的意愿生活。  
+2. **遵守神的律法**，但以此作为获取救恩的手段。  
+
+第二种方式的问题在于，这类人虽然实际上拒绝了福音，而选择了道德主义，却看起来像是在努力遵行神的旨意。因此，对神的回应方式不仅仅有两种，而是三种：**不信（无宗教）、宗教（道德主义）、福音**。  
+
+- **不信（无宗教）**：通过完全忽视神，来拒绝祂作为主和救主。  
+- **宗教（道德主义）**：通过建立自己的道德义，并以此呈献给神，试图让神“欠”自己，以此回避神作为主和救主。  
+- **福音**：不是我们自己建立义呈献给神，而是神通过耶稣基督赐予我们义（林前1:30；林后5:21）。福音不同于宗教和无宗教，它超越了道德主义和相对主义。  
+
+### 圣经中的三种生命模式  
+
+这一主题贯穿整本圣经。例如，当神拯救以色列人脱离埃及的奴役时，祂**先**带领他们出来，然后**再**赐下律法让他们遵行（出19:4-5；申7:6-9）。顺服律法是他们被拯救和蒙拣选的结果，而不是原因。神与以色列人立约时，还警告他们，尽管他们可能完全遵行律法、礼仪和敬拜的规条，但他们的心仍可能是**未受割礼的**（利26:41；申10:16；30:6；耶4:4）。  
+
+在新约中，保罗在《罗马书》1-4章中描述了这三种生命模式：  
+
+1. **不信者**（未受割礼）——外邦人和不信者，不顺服神的律法（罗1:18-32）。  
+2. **宗教主义者**（仅肉身受割礼）——相信神的律法，但依靠自己的行为获得救恩（罗2:1-3:20）。  
+3. **福音信仰者**（心受割礼）——顺服神的律法，但是基于神的救恩，而非靠行为自义（腓3:3）。  
+
+在**福音书**中，耶稣的教导和遇见的人也展现了这三种生命模式。例如：  
+
+- **法利赛人与税吏**（路18章）  
+- **法利赛人与堕落的妇人**（路7章）  
+- **社会尊贵人士与被鬼附的人**（可5章）  
+
+在所有这些案例中，**那些道德上不完美、宗教上较差的人，往往比宗教人士更容易接受耶稣**。甚至在约翰福音3-4章中，耶稣分别与法利赛人尼哥底母和撒玛利亚妇人交谈，后者立即欢喜领受福音，而尼哥底母则需要时间思考。这印证了圣经一贯的教导：**神拣选世上的愚拙，使智慧的羞愧；拣选世上的软弱，使强壮的羞愧**（林前1:26-31）。  
+
+### 宗教比不信更容易取代福音  
+
+比起从宗教转向福音，从福音回归宗教更容易。马丁·路德的一个重要见解是：**宗教是人心的默认模式**。即便是不信神的人，也会根据自己的价值观来获取自我价值感。而“行为-宗教”的影响如此顽固，以至于即使真正相信福音的基督徒，在潜意识深处仍可能像是靠行为得救。正如理查德·洛夫雷斯（Richard F. Lovelace）进一步发展了这一观点……
+
 It is so much easier to move from the gospel to religion than the other way round. One of Martin Luther's fundamental insights is that religion is the default mode of the human heart. Even irreligious people earn their acceptability and sense of worth by living up to their set of values.2 And the effects of "works-religion" persist so stubbornly in the heart that Christians who believe the gospel at one level will continually revert to religion, operating at deeper levels as if they are saved by their works. Richard F. Lovelace develops this train of thought:
 
 > Only a fraction of the present body of professing Christians are solidly appropriating the justifying work of Christ in their lives. Many... have a theoretical commitment to this doctrine, but in their day-to-day existence they rely on their sanctification for justification... drawing their assurance of acceptance with God from their sincerity, their past experience of conversion, their recent religious performance or the relative infrequency of their conscious, willful disobedience. Few know enough to start each day with a thoroughgoing stand upon Luther's platform: you are accepted, looking outward in faith and claiming the wholly alien righteousness of Christ as the only ground for acceptance, relaxing in that quality of trust which will produce increasing sanctification as faith is active in love and gratitude….
 >
-> Much that we have interpreted as a defect of sanctification in church people is really an outgrowth of their loss of bearing with respect to justification. Christians who are no longer sure that God loves and accepts them in Jesus, apart from their present spiritual achievements, are subconsciously radically insecure persons... Their insecurity shows itself in pride, a fierce defensive assertion of their own righteousness and defensive criticism of others. They come naturally to hate other cultural styles and other races in order to bolster their own security and discharge their suppressed anger.2
-## PREACHING THE THIRD WAY FOR FVRRYONE
+> Much that we have interpreted as a defect of sanctification in church people is really an outgrowth of their loss of bearing with respect to justification. Christians who are no longer sure that God loves and accepts them in Jesus, apart from their present spiritual achievements, are subconsciously radically insecure persons... Their insecurity shows itself in pride, a fierce defensive assertion of their own righteousness and defensive criticism of others. They come naturally to hate other cultural styles and other races in order to bolster their own security and discharge their suppressed anger.
+> 目前，只有一小部分自称为基督徒的人，真正地在日常生活中扎实地接受并应用基督的称义之工。许多人**在理论上**承认这个教义，但在实际生活中，他们却依赖自己的成圣来寻求称义……他们从自己的**虔诚、过去的归信经历、最近的宗教表现，或较少的有意识犯罪**中，寻找自己被神接纳的确据。然而，很少有人懂得每天都要像路德所强调的那样，坚定地站在**“你已经被接纳”**的立场上，凭信仰向外仰望，并坚信**唯独基督的义**是他们被接纳的唯一基础。在这种信靠中真正得安息，并在爱和感恩的信心运作中，自然地产生越来越多的成圣。  
+>
+> 在教会中，许多我们认为是**成圣的缺陷**的问题，实际上源于人们对**称义的迷失**。如果基督徒不再确信**神在耶稣基督里爱他们、接纳他们，而不是基于他们的属灵表现**，他们在潜意识里就会变得极度不安和没有安全感……这种不安会表现为**骄傲、自义的防御性坚持，以及对他人的批判**。他们会自然地憎恨不同的文化风格和其他种族，以此来增强自己的安全感，并释放内心深处被压抑的愤怒。
+## PREACHING THE THIRD WAY FOR EVERYONE
 
 ### A QUICK COMPARISON OF RELIGION AND THE GOSPEL
 

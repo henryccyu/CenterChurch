@@ -21,7 +21,7 @@ It is so much easier to move from the gospel to religion than the other way roun
 > Much that we have interpreted as a defect of sanctification in church people is really an outgrowth of their loss of bearing with respect to justification. Christians who are no longer sure that God loves and accepts them in Jesus, apart from their present spiritual achievements, are subconsciously radically insecure persons... Their insecurity shows itself in pride, a fierce defensive assertion of their own righteousness and defensive criticism of others. They come naturally to hate other cultural styles and other races in order to bolster their own security and discharge their suppressed anger.2
 ## PREACHING THE THIRD WAY FOR FVRRYONE
 
-### A QUICK COMPARISON OF RELIGION AND THE GOSPEL4
+### A QUICK COMPARISON OF RELIGION AND THE GOSPEL
 
 If you are communicating the gospel message, you must not only help listeners distinguish between obeying God and disobeying him; you must also make clear the distinction between obeying God as a means of self-salvation and obeying God out of gratitude for an accomplished salvation. You will have to distinguish between general, moralistic religion and gospel Christianity. You will always be placing three ways to live before your listeners.
 

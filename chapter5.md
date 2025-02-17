@@ -56,9 +56,11 @@ It is so much easier to move from the gospel to religion than the other way roun
 > Only a fraction of the present body of professing Christians are solidly appropriating the justifying work of Christ in their lives. Many... have a theoretical commitment to this doctrine, but in their day-to-day existence they rely on their sanctification for justification... drawing their assurance of acceptance with God from their sincerity, their past experience of conversion, their recent religious performance or the relative infrequency of their conscious, willful disobedience. Few know enough to start each day with a thoroughgoing stand upon Luther's platform: you are accepted, looking outward in faith and claiming the wholly alien righteousness of Christ as the only ground for acceptance, relaxing in that quality of trust which will produce increasing sanctification as faith is active in love and gratitude….
 >
 > Much that we have interpreted as a defect of sanctification in church people is really an outgrowth of their loss of bearing with respect to justification. Christians who are no longer sure that God loves and accepts them in Jesus, apart from their present spiritual achievements, are subconsciously radically insecure persons... Their insecurity shows itself in pride, a fierce defensive assertion of their own righteousness and defensive criticism of others. They come naturally to hate other cultural styles and other races in order to bolster their own security and discharge their suppressed anger.
+> 
 > 目前，只有一小部分自称为基督徒的人，真正地在日常生活中扎实地接受并应用基督的称义之工。许多人**在理论上**承认这个教义，但在实际生活中，他们却依赖自己的成圣来寻求称义……他们从自己的**虔诚、过去的归信经历、最近的宗教表现，或较少的有意识犯罪**中，寻找自己被神接纳的确据。然而，很少有人懂得每天都要像路德所强调的那样，坚定地站在**“你已经被接纳”**的立场上，凭信仰向外仰望，并坚信**唯独基督的义**是他们被接纳的唯一基础。在这种信靠中真正得安息，并在爱和感恩的信心运作中，自然地产生越来越多的成圣。  
 >
 > 在教会中，许多我们认为是**成圣的缺陷**的问题，实际上源于人们对**称义的迷失**。如果基督徒不再确信**神在耶稣基督里爱他们、接纳他们，而不是基于他们的属灵表现**，他们在潜意识里就会变得极度不安和没有安全感……这种不安会表现为**骄傲、自义的防御性坚持，以及对他人的批判**。他们会自然地憎恨不同的文化风格和其他种族，以此来增强自己的安全感，并释放内心深处被压抑的愤怒。
+
 ## PREACHING THE THIRD WAY FOR EVERYONE
 
 ### A QUICK COMPARISON OF RELIGION AND THE GOSPEL
@@ -71,6 +73,14 @@ Some claim that to always strike a note of "grace, grace, grace" in our sermons 
 
 In the end, legalism and relativism in churches are not just equally wrong; they are basically the same thing. They are just different strategies of self-salvation built on human effort. No matter whether a local church is loose about doctrine and winks at sin or is marked by scolding and rigidity, it will lack the power it promises. The only way into a ministry that sees people's lives change, that brings joy and power and electricity without authoritarianism, is through preaching the gospel to deconstruct both legalism and relativism.
 
+如果你要传达福音信息，你不仅要帮助听众区分顺服上帝与悖逆上帝的区别，还必须清楚地阐明顺服上帝的两种不同动机：一种是将顺服视为自我救赎的手段，另一种是出于对已经成就的救赎的感恩。你需要区分一般的道德宗教与真正的福音基督教。在你的听众面前，你始终要摆出三种生活方式供他们选择。
+
+要吸引后现代人的关注、挑战名义上的基督徒、唤醒“沉睡”的基督徒，甚至让忠心的基督徒也为之欢喜，最重要的方式就是传讲福音，作为一种与无宗教信仰（不敬虔）和传统宗教（律法主义）都截然不同的“第三条道路”。为什么呢？首先，许多自称基督徒的人只是名义上的信徒，他们就像《路加福音》15:11-32中所描述的“大儿子”，清楚地区分这些人可能有助于他们真正归信基督。其次，许多真正的基督徒也带有“大儿子”的特质——他们愤怒、机械化、优越感强、缺乏安全感，而这种区分可能是唯一能够触及他们内心的方式。第三，大多数后现代人都成长在或接触过“高度宗教化”的教会环境中，他们观察到，宗教人士往往通过让自己相信比别人更优秀来增强自我价值感，结果导致排斥和定罪他人。现代社会的大多数非信徒已经拒绝了宗教带来的这些毒果，但在他们拒绝时，也以为自己是在拒绝基督教。如果你呼召他们跟随基督，即使你使用《圣经》的语言，比如“接受基督，你就会被收养进入他的家”（见《约翰福音》1:12-13），他们仍然会自动认为你是在把他们引向那种“大儿子”式的道德主义和宗教信仰。除非你不断且清晰地向他们表明，他们误解了福音，而你所传讲的是一种完全不同于宗教的信仰，否则他们不会真正倾听真正的福音。
+
+有些人认为，在讲道中不断强调“恩典，恩典，恩典”并没有帮助。他们的反对意见是：“法利赛主义和道德主义并不是当今文化的主要问题，我们真正的问题是放纵和反律法主义（antinomianism）。人们缺乏对是非的认知，因此不断强调恩典对于后现代人来说是多余的。”我不同意这种观点。首先，除非你指出“好消息”——恩典，否则人们甚至无法承受“坏消息”——上帝的审判。其次，除非你批判道德主义，否则许多无宗教信仰的人不会明白道德主义和福音之间的区别。对福音的深刻理解才是抵御放纵和反律法主义的真正解药。
+
+最终，在教会中，律法主义和相对主义不仅是同样错误的，它们本质上是一样的。它们只是依靠人类努力实现自我救赎的不同策略而已。无论一个教会是对教义宽松、对罪视而不见，还是充满责备和僵化，它都无法兑现自己承诺的属灵能力。唯一能够带来生命改变、带来喜乐和能力，同时不陷入专制主义的事工方式，就是透过传讲福音，拆解律法主义和相对主义。
+
 ## MORALISTIC BEHAVIOR CHANGE
 People typically try to instill honesty in others this way: "If you lie, you'll get in trouble with God and other people," or, "If you lie, you'll be like those terrible people, those habitual liars, and you are better than that!" What motivations are being encouraged? They are being called to change their behavior out of fear of punishment ("you'll get in trouble") and out of pride ("you'll be like a dirty liar; you wouldn't want to be like one of them"). Both fear of punishment and pride are essentially self-centered. The root motivation is, then, "Be honest because it will pay off for you." This approach puts pressure on the will and stirs up the ego to more selfishness in order to force a person to curb his or her inclinations to do wrong. We can call this "moralistic behavior change" because its basic argument is this: "Will yourself to change your behavior, and you can save yourself."
 
@@ -82,16 +92,38 @@ Moralistic behavior change bends a person into a different pattern through fear 
 
 To complete our illustration, if you try to bend metal without the softening effect of heat, it may simply break. Many people, after years of being crushed under moralistic behaviorism, abandon their faith altogether, complaining that they are exhausted and "can't keep it up." But the gospel of God's grace doesn't try to bend a heart into a new pattern; it melts it and re-forms it into a new shape. The gospel can produce a new joy, love, and gratitude — new inclinations of the heart that eat away at deadly self-regard and self-concentration. Without this "gospel heat" — the joy, love, and gratitude that result from an experience of grace — people will simply snap. Putting pressure on their will may temporarily alter their behavior, but their heart's basic self-centeredness and insecurity remain.
 
+人们通常试图通过以下方式培养他人的诚实品格：“如果你撒谎，你会惹上麻烦，上帝和别人都会责罚你。”或者，“如果你撒谎，你就会变成那些可怕的人，那些惯于撒谎的人，而你比他们更高尚！”这样的教育方式在激发什么动机呢？它们让人因害怕惩罚（“你会惹上麻烦”）或出于骄傲（“你不想成为一个肮脏的骗子吧”）而改变行为。然而，无论是对惩罚的恐惧，还是出于骄傲的自尊心，本质上都是以自我为中心的。最终的动机变成了：“要诚实，因为这样对你有好处。”这种方法对人的意志施加压力，并激发人的自我意识，使其更加以自我为中心，以此来迫使他们抑制自己的错误倾向。我们可以将其称为“道德主义行为改变”，因为它的基本逻辑是：“靠意志力来改变你的行为，你就能拯救自己。”
+
+如果基督徒被教导主要是为了逃避惩罚、赢得自尊或获得救赎而行善，那么他们实际上是在为自己服务而成为“道德”的。在行为层面上，他们或许表现出极大的自我牺牲，例如帮助穷人、爱护家庭，或忠于上帝的律法，甚至愿意牺牲时间、金钱和其他资源。然而，在更深层次上，他们这样做是为了获得上帝的祝福，为了能够将自己视为有道德、有爱心的人。他们并不是因为爱上帝本身而去服从他，不是单纯地因着上帝的伟大和他在基督里所成就的一切而顺服他。相反，他们是在利用上帝来获得自己想要的东西：他们希望祷告得到应允，希望拥有健康、成功，甚至盼望来世的救赎。因此，他们“行善”并不是为了上帝或善本身，而是为了自己的利益。他们的行为改变，是建立在自身利益驱动的基础上的。
+
+试图通过激发人的自我中心意识来促使他们行善，并不能触及人心深处的自私和自恋，而这恰恰是人类的根本问题。因此，这种方式并不能真正解决你想要改变的行为（比如撒谎）。道德主义的行为改变只是操纵和利用人心深处的极端自私，而并不真正挑战它。它试图用人的自私来对抗自私，主要依赖恐惧和骄傲的驱动力。这种方法虽然在一定程度上能暂时抑制人心的自我中心性，但却根本无法改变它，反而会进一步巩固它的力量。
+
+道德主义的行为改变只是通过恐惧后果来“扭曲”一个人的行为模式，而不是将其“熔化”并塑造成一个全新的样式。然而，这种方法是无效的。如果你试图在没有热量软化的情况下弯曲一块金属，它很可能会反弹回原来的形状。这就是为什么我们会看到，那些试图通过道德主义行为改变自己的人，最终仍会一次次陷入他们原以为自己绝不会犯的罪。他们无法相信自己竟然会贪污、撒谎、通奸，或者因愤怒而攻击别人。当他们惊恐地发现自己的所作所为时，会说：“我不是在这样的环境下长大的！”但实际上，他们正是在这样的环境下长大的。因为道德主义的行为改变，即便是在一个宗教氛围浓厚的环境中，仍然会滋养一种“冷酷、疲惫、毫无喜悦的自我关注”，而这正是地狱的特征。这正是人们会贪污、撒谎、违背承诺的原因，也解释了为什么许多教会充满了流言蜚语和争斗。在那些表面看似无私的行为背后，隐藏着深深的自私。而道德主义的事工模式不仅强化了这种自私，还往往伴随着伪善、论断和怨恨。
+
+继续我们的比喻，如果你试图在没有热量软化的情况下弯曲金属，它可能不仅不会弯曲，反而会直接断裂。许多人在经历多年道德主义的压迫之后，最终彻底放弃信仰，抱怨自己已经筋疲力尽，再也“撑不下去了”。但上帝恩典的福音并不是试图把人的心“弯曲”成新的模式，而是熔化它，并重新塑造成新的形状。福音能够带来新的喜乐、爱和感恩——这些新的内心倾向能够逐渐消融那致命的自我关注和自我沉迷。没有这种“福音的热量”——也就是从恩典的经历中产生的喜乐、爱和感恩，人最终只会崩溃。单靠意志力的压力或许能暂时改变人的行为，但人内心的自我中心和不安仍然不会改变。
+
 ## GOSPEL BEHAVIOR CHANGE
 In light of all this, let's look at how the Bible calls us to change. In 2 Corinthians 8 and 9, Paul writes to believers to encourage them to give an offering to the poor, but he wants them to do so without a direct command from him. He does not begin by pressuring them into it or asserting his authority as an apostle. He doesn't force their wills by saying, "I'm an apostle and this is your duty to me," or, "God will punish you if you don't do this." Nor does he put pressure directly on their emotions by telling them stories about how deeply the poor are suffering and how much more money the Corinthians have than the sufferers. Instead, Paul vividly and unforgettably writes, "You know the grace of our Lord Jesus Christ, that though he was rich, yet for your sakes he became poor, so that you through his poverty might become rich" (2 Cor 8:9). When Paul states, "You know the grace," he is reminding his readers of the grace of God by means of a powerful image, one that shifts Jesus' salvation into the realm of wealth and poverty. He moves their hearts through a spiritual recollection of the gospel. Paul, in essence, urges, "Think about his costly grace, until the gospel changes you from the heart into generous people."
+
+鉴于以上所述，让我们来看《圣经》是如何呼召我们去改变的。在《哥林多后书》8章和9章中，保罗写信给信徒，鼓励他们向贫穷的人奉献，但他希望他们是在没有直接命令的情况下这样做。他并没有通过施压或强调自己作为使徒的权威来迫使他们。他没有用“我是使徒，你们有责任听从我”或“如果你们不这样做，上帝会惩罚你们”来强迫他们的意志。他也没有直接利用他们的情感，通过讲述穷人的痛苦和哥林多人相对富裕的事实来刺激他们的同情心。
+
+相反，保罗生动且令人难忘地写道：“你们知道我们主耶稣基督的恩典，他本来富足，却为你们成了贫穷的，叫你们因他的贫穷可以成为富足。”（《哥林多后书》8:9）当保罗说“你们知道这恩典”时，他是在用一个极具力量的比喻提醒他们上帝的恩典——他把耶稣的救赎描绘成财富与贫穷的转换。他通过对福音的属灵回忆来触动他们的内心。归根结底，保罗是在劝勉他们：“思想基督所付出的昂贵恩典，直到福音从你们的内心改变你们，使你们成为慷慨的人。”
 
 > ### COMMON MORALITY AND TRUE VIRTUE
 > Jonathan Edwards explored the difference between genuine gospel-triggered heart change and moralistic compliance with God's law. In The Nature of True Virtue, he contrasted these two kinds of moral behavior as "common morality" and "true virtue." Edwards argued that if our highest love is our family, we will ultimately choose our family's good over the good of other families; if our highest love is our nation, we will choose our nation's interests and ignore those of other countries; if our highest love is our own individual interests, we will choose to serve ourselves over seeking to meet the needs of others.
 >
 > Only if our highest love is God himself can we love and serve all people, families, classes, races; and only God's saving grace can bring us to the place where we are loving and serving God for himself alone and not for what he can give us. Unless we understand the gospel, we are always obeying God for our sake and not for his.®
 We find another example in Ephesians, where Paul is addressing spouses — but particularly, it seems, husbands (Eph 5:25 - 33). Many of these men had no doubt retained attitudes and understandings of marriage from their pagan backgrounds, attitudes in which marriage was primarily a business relationship that entailed marrying as profitably as they could. In his letter, Paul wants not only to encourage husbands to be sexually faithful but also to cherish and honor their wives. Here again (as in 2 Cor 8 and 9), Paul exhorts his readers to change their lives by showing unloving husbands the salvation of Jesus, our ultimate Spouse in the gospel, who showed sacrificial love toward us, his "bride." He did not love us because we were lovely (5:25 - 27), but to make us lovely.
+>
+> 乔纳森·爱德华兹（Jonathan Edwards）探讨了真正由福音触发的内心改变与单纯顺从上帝律法的道德主义之间的区别。在《真正美德的本质》（*The Nature of True Virtue*）一书中，他将这两种道德行为分别称为“普通道德”（*common morality*）和“真正美德”（*true virtue*）。爱德华兹认为，如果我们最深的爱是我们的家庭，我们最终会选择家庭的利益，而不是其他家庭的利益；如果我们最深的爱是我们的国家，我们会优先考虑国家的利益，而忽视其他国家的需求；如果我们最深的爱是我们自己的个人利益，我们就会以自我为中心，而不是关心他人的需要。
+>
+> 只有当我们最深的爱是上帝本身时，我们才能真正去爱和服事所有的人，包括不同的家庭、阶层和种族。而只有上帝的救赎恩典才能使我们来到这样的地步——我们爱上帝，仅仅因为他是上帝，而不是因为他能给予我们什么。除非我们真正理解福音，否则我们始终是在为自己的缘故顺服上帝，而不是为他的缘故。
+>
+> 我们在《以弗所书》中也可以看到类似的例子，保罗在这里对夫妻——尤其是丈夫们——提出教导（*以弗所书* 5:25-33）。其中许多男性信徒很可能仍然持有异教文化中的婚姻观念，在他们的旧观念里，婚姻主要是一种带有经济利益的交易，他们会尽可能地选择一桩对自己最有利的婚姻。在这封书信中，保罗不仅仅是鼓励丈夫们保持性忠诚，他更希望他们珍爱并尊重自己的妻子。
+>
+> 在这里（就像在《哥林多后书》8-9章中一样），保罗呼召读者改变他们的生活方式，他并不是简单地命令那些缺乏爱的丈夫去做出改变，而是向他们展现耶稣的救恩——福音中我们终极的新郎（*ultimate Spouse*）。耶稣对他的“新娘”——也就是教会——展现了牺牲的爱。他并不是因为我们可爱才爱我们（*以弗所书* 5:25-27），而是为了使我们成为可爱的。
 
-In his letter to Titus, Paul calls his readers to "say 'No' to ungodliness and worldly passions, and to live self-controlled, upright and godly lives" (Titus 2:12).I Think for a moment of all the ways you can say no to ungodly behavior. You can say:  
+In his letter to Titus, Paul calls his readers to "say 'No' to ungodliness and worldly passions, and to live self-controlled, upright and godly lives" (Titus 2:12). I Think for a moment of all the ways you can say no to ungodly behavior. You can say:  
 No— because I'll look bad.  
 No— because I'll be excluded from the social circles I want to belong to.  
 No— because then God will not give me health, wealth, and happiness.  
@@ -108,6 +140,34 @@ And when the gospel, brought home to our hearts (see Eph 3:16-19), eats away at 
 
 We no longer act morally simply because it profits us or makes us feel better about ourselves. Instead, we tell the truth and keep our promises simply out of love for the One who died for us, who kept a promise despite the unfathomable suffering it brought him. The gospel leads us to do the right thing not for our sake but for God's sake, for Christ's sake, out of a desire to know, resemble, please, and love the One who saved us. This kind of motivation can only grow in a heart deeply touched by grace.
 
+在给提多的书信中，保罗呼召他的读者要“弃绝不敬虔的心和世俗的私欲，在今世自律、公义、敬虔度日”（提多书 2:12）。试着想想，你可以用哪些方式来拒绝不敬虔的行为？你可能会说：  
+
+**不——因为我会形象不好。**  
+**不——因为我会被我想融入的社交圈子排斥。**  
+**不——因为如果我这样做，上帝就不会赐给我健康、财富和幸福。**  
+**不——因为如果我这样做，上帝会把我送入地狱。**  
+**不——因为我明早会讨厌自己，失去自尊。**  
+
+几乎所有这些理由，都是利用人内心自我中心的动机，迫使自己遵守外在的规则，但它们并不能真正改变人的内心。这些行为的动机并不是出于对上帝的爱，而是把上帝当作获取好处的手段——无论是自尊、成功，还是社会认可。  
+
+然而，保罗并没有鼓励他的读者用这些理由来改变自己。那么，在《提多书》这段经文中，他如何教导基督徒获得自律呢？保罗说，**“上帝救人的恩典已经显明出来，教导我们弃绝不敬虔的心……”**（提多书 2:11-12）。在提多书 3:5，保罗进一步解释了这恩典的含义：**“他救了我们，并不是因我们自己所行的义，而是照着他的怜悯。”** 保罗的意思是，如果你想要真正的改变，你必须让**福音来教导你**。这里“教导”一词的希腊原文意为**训练、管教、引导**，意味着在一段时间内持续地培养、塑造。因此，我们必须让福音不断与我们对话，深入我们内心，直到它改变我们的世界观和我们的内在动机结构。我们需要被福音训练，被福音塑造。  
+
+真正被相信的福音，能帮助我们摆脱人心深处那种极端的匮乏感。人天然需要被尊重、被欣赏、被高度评价。我们希望控制自己的人生，不愿意信靠上帝或任何人。我们需要掌控他人，以此提升自尊。如果“荣耀的上帝全然喜悦我们”的真理（参见以赛亚书 62:4；西番雅书 3:14；申命记 23:5；30:9）对我们来说只是一个概念，那么我们内心的匮乏感就会淹没我们，驱使我们的行为。没有圣灵的能力，我们的心就无法真正相信上帝的恩典和喜悦，因此只能按照本能运作。  
+
+但当福音的真理被圣灵带入我们的内心，它就会慢慢地、坚定地改变我们，使我们从新的角度认识到自己在基督里是何等安全、被爱、被接纳。透过福音，我们的身份不再建立在**我们所成就的事**上，而是建立在**基督为我们成就的一切**之上。  
+
+当福音深入我们的内心（参见以弗所书 3:16-19），它就会消融那种由罪带来的匮乏感，并摧毁驱使我们犯罪的内在动力。我们不需要撒谎，因为我们的名声已不再是最重要的。我们不需要对反对我们的人暴怒，因为没有人能夺去我们真正的财富。福音摧毁了道德主义行为改变的根源——骄傲和恐惧。  
+
+福音摧毁骄傲，因为它告诉我们，我们如此迷失，以至于耶稣必须为我们死。  
+福音也摧毁恐惧，因为它告诉我们，无论我们做了什么，都无法耗尽上帝对我们的爱。  
+
+当我们真正拥抱这些真理，我们的心不仅仅是受到约束，而是被彻底改变，甚至它的基本取向都被更新了。  
+
+**我们不再只是因为“有利可图”或“让自己感觉更好”而行善。**  
+**相反，我们说真话、信守承诺，乃是出于对那位为我们而死的主的爱，出于对那位甘愿忍受极大苦难仍然履行承诺的基督的爱。**  
+
+福音带领我们去行善，不是为了自己的缘故，而是为了上帝的缘故，为了基督的缘故，出于渴望认识、效法、取悦并爱那位拯救我们的主。这种动机，只有在**被恩典深深触动的心**中才能生长出来。
+
 > ## IS SANCTIFICATION BY "FAITH ALONE"?
 > People who agree that (1) salvation is strictly by grace through faith and (2) this free salvation results in a gratitude-motivated obedience to the law of God nevertheless disagree over the precise role and nature of effort in Christian growth. If, as Martin Luther states, all sin is rooted in idolatry, which is a failure to believe in Christ for our salvation and justification, then it appears that the only effort any Christian should put forth is an effort to believe the gospel. This seems to mean that Christian sanctification is by "faith alone," just as justification is—that it is only a matter of believing the gospel fervently enough. This kind of language has led some to charge that Luther (and those following him) are reducing Christians' efforts to live a holy life to nothing but believing in justification. They counter that sanctification takes strenuous effort beyond that.
 >
@@ -115,10 +175,49 @@ We no longer act morally simply because it profits us or makes us feel better ab
 >
 > Those who say, "We need to put in strenuous effort to obey, even if our belief in the gospel is wanting" are right, at least in the short term. But obedience is not the same thing as change. In the end, all effort is fueled by some motivation, and if our motivation is not the gospel, then we are not obeying God for his own sake (see sidebar on "Common Morality and True Virtue," p. 68); neither will we be able to permanently change our character.
 >
-> Imagine that a baby bird falls from its nest in the sight lines of a fox. The bird cannot yet fly (hence the fall), but there is a small protective hole at the base of tree that is within a scurry's reach. The fox pounces and sets out after the bird. What should the little bird do? Of course, it should scamper into the hole to get out of immediate danger. But if as time goes on all the bird ever does is scamper, it will never learn what it has been designed for: to fly. And eventually it will surely be eaten by the predators it is designed to escape.&
+> Imagine that a baby bird falls from its nest in the sight lines of a fox. The bird cannot yet fly (hence the fall), but there is a small protective hole at the base of tree that is within a scurry's reach. The fox pounces and sets out after the bird. What should the little bird do? Of course, it should scamper into the hole to get out of immediate danger. But if as time goes on all the bird ever does is scamper, it will never learn what it has been designed for: to fly. And eventually it will surely be eaten by the predators it is designed to escape.
 >
-> In the short run, we should simply obey God because it is his right and due. But in the long run, the ultimate way to shape our lives and escape the deadly influence of our besetting sins is by moving the heart with the gospel.
-The Bible's solution to stinginess, then, is a reorientation to the gospel and the generosity of Christ, who poured out his wealth for us (2 Cor 8:9). We don't have to worry about money, because the cross proves God's care for us and gives us security. Likewise, the Bible's solution to a bad marriage is a reorientation to the radical, spousal love of Christ communicated in the gospel. "You shall not commit adultery" (Exod 20:14) makes sense in the context of his spousal love, especially on the cross, where he was completely faithful to us. Only when we know this sacrificial, spousal love of Christ will we have real fortitude to combat lust. His love is fulfilling, so it keeps us from looking to sexual fulfillment to give us what only Jesus can.
+> In the short run, we should simply obey God because it is his right and due. But in the long run, the ultimate way to shape our lives and escape the deadly influence of our besetting sins is by moving the heart with the gospel. The Bible's solution to stinginess, then, is a reorientation to the gospel and the generosity of Christ, who poured out his wealth for us (2 Cor 8:9). We don't have to worry about money, because the cross proves God's care for us and gives us security. Likewise, the Bible's solution to a bad marriage is a reorientation to the radical, spousal love of Christ communicated in the gospel. "You shall not commit adultery" (Exod 20:14) makes sense in the context of his spousal love, especially on the cross, where he was completely faithful to us. Only when we know this sacrificial, spousal love of Christ will we have real fortitude to combat lust. His love is fulfilling, so it keeps us from looking to sexual fulfillment to give us what only Jesus can.
+>
+> 那些认同 **（1）救恩完全是因信称义、唯独出于恩典**，以及 **（2）这种白白得来的救恩会促使人出于感恩顺服上帝的律法** 的人，仍然会在基督徒成长过程中努力的角色和本质上产生分歧。
+>
+> 如果像马丁·路德所说的那样，**所有的罪都根源于偶像崇拜**，即**不相信基督能拯救我们、使我们称义**，那么似乎基督徒唯一需要付出的努力就是努力相信福音。这似乎意味着**成圣也是“唯独因信”，就像称义一样**——只要我们足够热切地相信福音，我们就会变得圣洁。这种说法让一些人指责路德（以及他的追随者）把基督徒努力过圣洁生活的责任，简化成了**仅仅相信自己的称义**。他们反驳道，**成圣需要超越单纯信仰的艰苦努力**。
+>
+> 我不会在这里深入探讨这个争议，但我认为**双方都提出了一些正确的观点，同时也很容易被误解**。
+>
+> ### **短期来看：全力以赴地顺服**
+> 在当下，基督徒应该**用尽一切可能的方式**去遵行上帝的旨意。如果你有冲动想拿起石头砸向某人——**无论如何都要阻止自己！** 你可以提醒自己：
+> **“我会进监狱的。”**
+> **“我会让家人蒙羞。”**
+> 即使你的信心不够，使你无法当下因信福音而压制自己的愤怒，也不意味着你应该屈服于罪。**短期来看，基督徒可以单靠意志力来抗拒罪恶**。上帝配得我们的顺服，我们应该顺服，即便我们的动机可能混杂且不纯。
+>
+> ### **长期来看：顺服≠真正的改变**
+> 那些说 **“即使信心不足，我们仍然需要努力顺服”** 的人是对的，至少在短期来看是如此。然而，**顺服并不等同于真正的改变**。
+> 归根结底，**所有的努力都源于某种动机**，如果这个动机不是出于福音，那么我们的顺服就不是出于对上帝本身的爱（参见**“普通道德与真正美德”** 的讨论）。此外，如果**我们不是因着福音而顺服，我们也无法真正、永久地改变我们的品格**。
+>
+> ### **比喻：学会飞翔的小鸟**
+> 想象一只**小鸟**从巢中掉落，正好被一只狐狸盯上。这只小鸟还不会飞（否则它就不会摔下来），但它可以**迅速逃进树根底部的一个洞里**，暂时避开狐狸的攻击。狐狸猛扑过来，开始追逐小鸟。这个时候，小鸟该怎么做？**当然是立刻逃进洞穴，以免丧命。**
+>
+> 然而，如果小鸟**一直只是逃跑，从不学会飞翔**，最终它还是会被捕食者吃掉。它被造的目的不是一生都靠“跑”来生存，而是要学会“飞”。
+>
+> **短期来看，我们必须顺服上帝，因为他配得我们的顺服。**
+> **但从长远来看，我们最终必须学习用福音来塑造我们的生命，才能真正逃离罪的毁灭性影响。**
+>
+> ### **福音如何带来真正的改变？**
+> 圣经提供的解决方案，并不是单靠意志力，而是**通过福音来重新塑造我们的内心**。
+>
+> - **对吝啬的解决方案**：圣经不是单纯地命令我们要“慷慨”，而是让我们重新聚焦于**福音和基督的慷慨**——**他为我们倾倒了一切财富**（《哥林多后书》8:9）。
+> - **我们不需要担忧金钱**，因为**十字架证明了上帝对我们的关爱**，并且赐给我们真正的安全感。
+>
+> - **对婚姻问题的解决方案**：圣经不仅仅命令我们“不可奸淫”（《出埃及记》20:14），而是让我们**回到福音中基督那超乎寻常的新郎之爱**。  
+> - **基督对我们的爱是牺牲的**，即使在十字架上，他仍然完全忠于我们。  
+> - **只有当我们真正认识到基督这种舍己、忠贞的新郎之爱时，我们才会有真正的能力去抵挡情欲的诱惑**。  
+  - **他的爱是最满足人的**，因此我们不需要**在性满足中寻找那些只有基督能给予我们的东西**。  
+>
+### **总结**
+短期来看，基督徒应该用一切方法去顺服上帝，即使动机不纯，即使需要依靠意志力。  
+但从长期来看，真正的改变**不是靠意志力，而是靠福音改变我们的内心**。  
+**只有当福音触动我们的内心，我们的顺服才会出于爱，而不是恐惧或骄傲。**
 
 What will truly make us sexually faithful spouses or generous persons or good parents or faithful children is not a redoubled effort to follow the example of Christ. Rather, it is deepening our understanding of the salvation of Christ and living out of the changes this understanding makes in our hearts — the seat of our minds, wills, and emotions. Faith in the gospel restructures our motivations, our self-understanding, our identity, and our view of the world. It changes our hearts.2
 

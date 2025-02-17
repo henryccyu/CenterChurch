@@ -298,3 +298,61 @@ Those who preach and counsel for gospel renewal should constantly speak about un
 > 2. Where do you find yourself in the chart titled "A Quick Comparison of Religion and the Gospel"? Go back and honestly take stock: Do the majority of your descriptors fall to the left column or to the right? In what situations do you find yourself turning to religion instead of the gospel? How have your patterns changed over the last five years, and why?
 > 3. Keller writes, "The only way into a ministry that sees people's lives change, that brings joy and power and electricity without authoritarianism, is through preaching the gospel to deconstruct both legalism and relativism." Why is it necessary to confront and deconstruct both of these errors? Which is more prevalent in your context? Which are you more likely to confront, and what can you do to restore balance to your ministry?
 > 4. The apostle Paul uses pictures of the gospel rather than pressure to lead people to change. This chapter gives three examples (generosity, husbands honoring wives, and self-control). Choose another area of life change and take notes on how you would bring the gospel to bear on the motivation of someone in your congregation. If you are in a group setting, practice this with someone else.
+>
+> 1. **你如何表达回应上帝的三种方式？这两种拒绝上帝的方式有哪些相似之处和不同之处？它们如何与对福音的回应形成对比？**  
+> 
+>  - **三种回应上帝的方式**：  
+>    1. **律法主义（Legalism）**——依靠自己的道德行为和宗教努力来赢得上帝的接纳。  
+>    2. **相对主义（Relativism/Irreligion）**——拒绝上帝的律法，自行定义道德和意义。  
+>    3. **福音（Gospel Response）**——承认自己的无能，完全依靠基督的恩典和救赎。  
+>
+>  - **律法主义和相对主义的相似点**：  
+>    - 二者都试图依靠自己的方式来掌控人生，而不是完全信靠上帝。  
+>    - 两者都源于对上帝恩典的拒绝——律法主义者试图通过行为赢得救赎，相对主义者则认为自己不需要救赎。  
+>
+>  - **它们与福音的对比**：  
+>    - 福音既不是靠行为得救，也不是抛弃上帝的律法，而是相信基督已为我们成就了一切，并以爱和感恩的心顺服上帝。  
+>
+> 2. **在“宗教与福音的快速对比”图表中，你发现自己处在哪一列？回顾并诚实地评估：你大多数的描述是落在左侧（宗教）还是右侧（福音）？在什么情况下，你更倾向于依靠宗教，而不是福音？在过去五年里，你的模式发生了怎样的变化？为什么？**  
+>
+>  - 诚实地反思自己的信仰模式：  
+>    - 是否常常感到自己必须通过“做得更好”来获得上帝的接纳？  
+>    - 是否在失败时感到极度自责，认为自己配不上上帝的爱？  
+>    - 是否在顺服上帝时感到骄傲，而在失败时陷入羞耻？  
+>    - 还是你越来越多地经历到福音带来的自由和平安？  
+>
+>  - 过去五年的信仰成长：  
+>    - 你是如何从“依靠自己”转向“依靠基督”的？  
+>    - 是什么因素帮助你更深地领受福音？  
+>
+> 3. **凯勒写道：“唯一能带来生命改变，并且充满喜乐、能力、活力，而不陷入专制主义的事工方式，就是透过传讲福音，来拆解律法主义和相对主义。” 为什么必须同时对这两种错误提出挑战并加以拆解？在你的环境中，哪一种更为普遍？你更容易挑战哪一种？你可以做些什么来恢复事工的平衡？**  
+>
+>  - **为什么必须同时拆解律法主义和相对主义？**  
+>    - **律法主义（Legalism）**会让人陷入自义、骄傲，或者绝望、律法捆绑。  
+>    - **相对主义（Relativism）**会让人误解福音，认为恩典意味着随心所欲，不需要悔改和改变。  
+>    - **福音则提供第三条道路**，既不否定上帝的律法，也不依靠人的行为，而是信靠基督的救赎与能力。  
+>
+>  - **你的环境中，哪种错误更常见？**  
+>    - 在你的文化、教会、社群中，律法主义还是相对主义更盛行？  
+>    - 你是否发现自己更容易挑战其中一种，而忽视另一种？  
+>
+>  - **如何恢复平衡？**  
+>    - 若你倾向于强调顺服和道德，是否需要更强调恩典和信心？  
+>    - 若你倾向于强调恩典和自由，是否需要提醒人们福音也带来生命的改变？  
+>
+> 4. **使徒保罗用福音的画面，而不是施压的方式，来引导人们改变。本章给出了三个例子（慷慨、丈夫尊重妻子、自律）。请选取生活中的另一个领域，并思考如何用福音来激励某人改变他的动机。如果你在小组中，可以与他人一起练习。**  
+>
+>  - **选取一个具体领域**（例如：饶恕、不说谎、克服焦虑、面对苦难、处理愤怒等）。  
+>  - **如何用福音激励改变？**  
+>    - **举例：饶恕**  
+>      - 宗教的方式：**“你应该饶恕，否则你就不是个好基督徒。”**  
+>      - 福音的方式：**“基督在我们还是罪人的时候，就为我们死了（罗5:8）。当我们还敌对他时，他就已经完全饶恕了我们。因此，我们可以从这个丰盛的恩典中活出饶恕的生命。”**  
+>    - **举例：面对焦虑**  
+>      - 宗教的方式：**“你不能担心，你应该有信心！”**  
+>      - 福音的方式：**“因为基督已经为我们承担了一切，我们的未来是安全的。他说：‘不要忧虑，天父知道你们所需的一切’（太6:31-33）。所以，我们可以在他的爱里得安息，而不是靠自己掌控人生。”**  
+>
+>  - **与他人练习**：  
+>    - 找一位朋友，帮助他用福音来看待他正在挣扎的问题。  
+>    - 练习用福音来安慰、鼓励，而不是单靠道德责任或恐惧来驱动改变。  
+>
+> 透过以上问题的思考和实践，我们可以更深地将福音应用在生命的各个领域，使我们的信仰不仅停留在头脑里，而是真正影响我们的心和行为。

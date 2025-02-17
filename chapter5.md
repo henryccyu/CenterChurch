@@ -214,20 +214,44 @@ We no longer act morally simply because it profits us or makes us feel better ab
 > - **只有当我们真正认识到基督这种舍己、忠贞的新郎之爱时，我们才会有真正的能力去抵挡情欲的诱惑**。  
   - **他的爱是最满足人的**，因此我们不需要**在性满足中寻找那些只有基督能给予我们的东西**。  
 >
-### **总结**
-短期来看，基督徒应该用一切方法去顺服上帝，即使动机不纯，即使需要依靠意志力。  
-但从长期来看，真正的改变**不是靠意志力，而是靠福音改变我们的内心**。  
-**只有当福音触动我们的内心，我们的顺服才会出于爱，而不是恐惧或骄傲。**
+>### **总结**
+> 短期来看，基督徒应该用一切方法去顺服上帝，即使动机不纯，即使需要依靠意志力。  
+> 但从长期来看，真正的改变**不是靠意志力，而是靠福音改变我们的内心**。  
+> **只有当福音触动我们的内心，我们的顺服才会出于爱，而不是恐惧或骄傲。**
 
 What will truly make us sexually faithful spouses or generous persons or good parents or faithful children is not a redoubled effort to follow the example of Christ. Rather, it is deepening our understanding of the salvation of Christ and living out of the changes this understanding makes in our hearts — the seat of our minds, wills, and emotions. Faith in the gospel restructures our motivations, our self-understanding, our identity, and our view of the world. It changes our hearts.2
 
 Behavioral compliance to rules without heart change will be superficial and fleeting. The purpose of preaching, pastoring, counseling, instructing, and discipling is, therefore, to show people these practical implications of faith in the gospel.
 
+真正使我们成为**忠贞的配偶、慷慨的人、良善的父母、孝顺的儿女**的，不是加倍努力去效法基督的榜样，而是**更深入地理解基督的救恩，并活出这种理解在我们内心带来的改变**——这种改变影响我们的思想、意志和情感。  
+
+**对福音的信仰会重塑我们的动机、自我认知、身份认同以及世界观**，最终**改变我们的内心**。  
+
+单纯遵守行为规范，而没有内心的改变，只会导致**表面的、短暂的顺服**。  
+
+因此，**讲道、牧养、辅导、教导和门徒训练的目的，就是向人们展现福音信仰在实际生活中的意义和影响**。
+
 ## THE IMPORTANCE OF IDOLATRY
 One of the most important biblical and practical ways to help people come to see how they fail to believe the gospel is by instructing them on the nature of idolatry, 10 In his Treatise on Good Works, an exposition of the Ten Commandments, Martin Luther states that the call to "have no other gods before me" (Exod 20:3) and the call to believe in Jesus alone for our justification (Rom 3-4) are, in essence, the same thing. To say we must have no other gods but God and to say we must not try to achieve our salvation without Christ are one and the same:
 
-> Now this is the work of the First Commandment, which commands: "Thou shalt have no other gods," which means: "Since I alone am God, thou shalt place all thy confidence, trust and faith on Me alone, and on no one else "11
-Luther's teaching is this: Anything we look to more than we look to Christ for our sense of acceptability, joy, significance, hope, and security is by definition our god — something we adore, serve, and rely on with our whole life and heart. In general, idols can be good things (family, achievement, work and career, romance, talent, etc. — even gospel ministry) that we turn into ultimate things to give us the significance and joy we need. Then they drive us into the ground because we must have them. A sure sign of the presence of idolatry is inordinate anxiety, anger, or discouragement when our idols are thwarted. So if we lose a good thing, it makes us sad, but if we lose an idol, it devastates us.
+**帮助人们认识到自己如何未能真正相信福音的一个最重要的圣经原则和实践方法，就是教导他们偶像崇拜的本质。**  
+
+在《论善行》（*Treatise on Good Works*）——一部对**十诫**的诠释中，马丁·路德指出：“**不可有别的神**”（《出埃及记》20:3）的命令，与**唯独因信耶稣而称义**（《罗马书》3-4章）的呼召，在本质上是同一件事。  
+
+换句话说，**“我们不可敬拜其他的神”**，与**“我们不可尝试靠自己得救，而不借着基督”**，两者的意义完全一致。
+
+> Now this is the work of the First Commandment, which commands: "Thou shalt have no other gods," which means: "Since I alone am God, thou shalt place all thy confidence, trust and faith on Me alone, and on no one else " Luther's teaching is this: Anything we look to more than we look to Christ for our sense of acceptability, joy, significance, hope, and security is by definition our god — something we adore, serve, and rely on with our whole life and heart. In general, idols can be good things (family, achievement, work and career, romance, talent, etc. — even gospel ministry) that we turn into ultimate things to give us the significance and joy we need. Then they drive us into the ground because we must have them. A sure sign of the presence of idolatry is inordinate anxiety, anger, or discouragement when our idols are thwarted. So if we lose a good thing, it makes us sad, but if we lose an idol, it devastates us.
+>
+> 这就是**第一条诫命**的教导：“**你不可有别的神**。” 其意义是：**“既然唯有我是上帝，你就当将你所有的信心、信靠和信赖完全放在我身上，而不是任何其他事物。”**  
+> 
+> 路德的教导是：**任何我们比基督更依赖的事物，任何我们比基督更渴望从中获得接纳感、喜乐、价值感、盼望和安全感的事物，本质上就是我们的“神”**——是我们全心全意去敬拜、服事和倚靠的偶像。  
+> 
+> 通常，**偶像并非邪恶的事物，而是一些本是美好的事物**（如家庭、成就、工作与事业、爱情、才华，甚至是福音事工），**但我们把它们变成了终极的依靠，期望从中获得我们最深层的意义和喜乐**。然而，这些偶像最终会压垮我们，因为**我们必须拥有它们**。  
+> 
+> **判断一个人是否存在偶像崇拜的明显标志之一，就是当偶像受阻时，便产生过度的焦虑、愤怒或沮丧。**  
+> 
+> 如果我们失去一件**好事**，我们会感到悲伤；  
+> 但如果我们失去一件**偶像化的事物**，我们会彻底崩溃。
 
 Luther also concludes from his study of the commandments that we never break one of the other commandments unless we are also breaking the first. 12 We do not lie, commit adultery, or steal unless we first make something else more fundamental to our hope and joy and identity than God. When we lie, for example, our reputation (or money or whatever) is at that moment more foundational to our sense of self and happiness than the love of Christ. If we cheat on our income tax form, then money and possessions — and the status or comfort from having more of them — have become more important to our heart's sense of significance and security than our identity in Christ. Idolatry, then, is also the root of our other sins and problems, 13
 
@@ -236,6 +260,38 @@ So if the root of every sin is idolatry, and idolatry is a failure to look to Je
 What, then, is the essence of behavior change? What will help us lead godly lives? The solution is not simply to force or scare ourselves into doing the right thing, but to apply the gospel to our hearts' idols, which are always an alternate form of self-salvation apart from Jesus. Our failures in actual righteousness, then, generally come from a failure to rejoice in our legal righteousness in Christ. Our failures in sanctification (living Christlike, godly lives) come mainly from a lack of orientation to our justification. We will never change unless we come to grips with the particular, characteristic ways our hearts resist the gospel and continue their self-salvation projects through idolatry.
 
 Those who preach and counsel for gospel renewal should constantly speak about underlying idols, which show us our hearts' particular, characteristic ways of failing to believe the gospel. To do so will prevent people from trying to solve all problems and make all changes through moralistic behaviorism, which leads to insecurity, suppressed anger and guilt, and spiritual deadness. 14 Instead it keeps the focus on the gospel and the work of Christ. In the next chapter, we'll look at how churches can cooperate with the Holy Spirit to bring about gospel renewal.
+
+路德在研究**十诫**时还得出一个结论：**我们不会违反其他诫命，除非我们首先违背了第一条诫命**。  
+
+**我们不会撒谎、奸淫或偷窃，除非我们先将某些事物看得比上帝更重要，把它们当作我们盼望、喜乐和身份的根基**。  
+
+- **当我们撒谎时**，那一刻，我们的**名誉（或金钱、地位等）** 比基督的爱对我们的意义更深，成了我们身份认同和幸福感的基石。  
+- **当我们在税务上作弊时**，那一刻，**金钱、财富，以及它们所带来的地位和舒适**，比我们在基督里的身份更加重要，成了我们安全感的来源。  
+
+因此，**偶像崇拜不仅仅是一个独立的罪，它还是我们所有其他罪恶和问题的根源**。  
+
+### **罪的根源：不相信福音**
+如果**每一种罪的根源都是偶像崇拜**，而**偶像崇拜是因为我们没有完全仰望基督来得救和称义**，那么**所有罪的根源，就是我们没有真正相信福音的信息——即唯独耶稣是我们的称义、公义和救赎**。  
+
+### **那么，行为改变的本质是什么？**
+**是什么能帮助我们过敬虔的生活？**  
+**答案不是强迫自己或用恐惧吓唬自己去做正确的事，而是要用福音来对付我们内心的偶像**。  
+
+**所有的偶像，归根结底，都是一种不靠耶稣而寻求自我拯救的方式。**  
+- **我们之所以在实际生活中无法行出公义，是因为我们没有因信基督的义而喜乐。**  
+- **我们之所以在成圣（活出基督样式的敬虔生活）方面失败，主要是因为我们没有牢牢抓住因信称义的福音。**  
+
+**除非我们认识到自己内心是如何抗拒福音，并通过偶像崇拜继续自己的“自我拯救”计划，否则我们永远不会真正改变。**  
+
+### **如何在教会中带来福音更新？**
+**那些传讲福音、进行牧养辅导的人，应该不断谈论人心深处的偶像。**  
+因为**偶像反映了我们的内心是如何独特地抗拒福音、不愿完全相信福音**。  
+
+这样做的目的是：  
+- **避免人们试图仅靠道德主义的行为改变来解决所有问题**，因为这最终只会带来**不安、被压抑的愤怒与罪疚感，以及属灵的枯竭**。  
+- **让人的焦点始终放在福音和基督的工作上，而不是人的意志力或律法的压力。**  
+
+在接下来的章节，我们将探讨**教会如何与圣灵同工，带来福音的更新**。
 
 > ### QUESTIONS FOR DISCUSSION AND REFLECTION
 > 1. How would you articulate the three ways of responding to God? What are the differences and similarities between the two ways of rejecting God? How do both of these contrast with a response to the gospel?

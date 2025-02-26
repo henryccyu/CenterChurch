@@ -123,6 +123,32 @@ The call to contextualize the gospel has been - and still often is - used as a c
 Tanchanpongs argues, however, that it is wrong to look at Scripture and imagine that some core, essential teachings are more important than other, more tangential ones. In fact, Harvie Conn argued that syncretism is most likely to occur when (in the name of culture) we forbid the whole of Scripture to speak. Every culture will find some parts of Scripture more attractive and other parts more offensive. It will be natural, then, for those in that culture to consider the inoffensive parts more "important" and "essential" than the offensive parts. This is exactly what the liberal Christianity of Machen's day did in rejecting the "offensive" supernatural elements of the Bible. Syncretism is, in fact, a rejection of the full authority of the Bible, a picking and choosing among its various teachings to create a Christianity that does not confront or offend.19 Faithful contextualization, then, should adapt the communication and practice of all scriptural teaching to a culture (see below on the dangers of having a "canon within a canon" when contextualizing).
 
 ## THE INEVITABILITY OF CONTEXTUALIZATION
+这里有一个容易被忽视的美丽悖论：我们必须在特定的文化背景下表达普遍真理，但这并不意味着真理本身会因此丧失或变得不那么普遍。D. A. Carson 写道：“[虽然] 人类所能表达的任何真理都无法以超越文化的方式表达……但这并不意味着这些真理本身不超越文化。”20  
+
+我们必须努力保持这一重要声明的平衡。首先，这意味着没有一种单一的方式可以普遍适用于所有文化来表达基督教信仰。只要你表达福音，你就不可避免地会以某种方式使其对某些文化的人更易理解，而对其他人则较难理解。另一方面，尽管没有超越文化的表达方式，但福音却只有一个真实版本。福音的真理并非任何文化的产物，它对所有人类文化都具有审判权。如果你忘记了第一个真理——即没有脱离文化的福音表达——你就会认为只有一种正确的方式来传达福音，这将导致一种僵化的、受文化束缚的保守主义。而如果你忘记了第二个真理——即只有一个真正的福音——你可能会陷入相对主义，从而导致一种缺乏方向的自由主义。无论哪种情况，你都会在事工上变得不够忠诚，也不够有果效。  
+
+### 自由主义与自然主义  
+
+当自由派基督教接受自然主义时，它认为这是一种人类思想的永久性变化，必须加以接受。那些坚持超自然基督教的人，被认为是“站在历史的错误一边”。但这实际上是一个类别错误。早期现代性既是自然主义的（“一切都必须有自然的、科学的解释”），也是个人主义的（“不能有高于个人理性和选择的权威”）。然而，晚期现代性或后现代性虽然仍然坚持个人的自主性，却已经摒弃了自然主义对科学能最终解答所有重要问题、技术能解决所有重大问题的信心。自由派基督教与一个如今被视为正在消逝的、过时的文化观念绑定在一起。与此同时，五旬节派（基督教信仰中最强调超自然的派别）和其他形式的正统基督教在过去一百年里迅速增长，而自由派基督教却远远落后。  
+
+我们应当得出什么结论？如果没有一种单一的、脱离文化的方式来表达福音，那么文化调整（contextualization）就是不可避免的。只要你选择了一种语言进行表达，并在该语言中选择特定的词汇，语言所承载的文化特性就开始发挥作用。我们常常认为从一种语言翻译到另一种语言很简单——只需找到相应的同义词即可。但实际上很少有真正的同义词。例如，英文的“God”在德语中翻译为“Gott”，这看似简单，但德语使用者的文化背景使得“Gott”在他们听来与“God”在英语使用者听来是不同的。它对他们的意义有所不同。因此，你可能需要更多解释，才能让德语听众理解“God”一词在圣经中的概念，或者可能需要使用另一个词来产生相同的效果。一旦你选择了某些词语，你就在进行文化调整，这会使你的信息对某些人更容易理解，而对另一些人则不那么容易理解。没有一种普适于所有人的福音表达方式。21  
+
+然而，即便是在同一种语言的环境下，许多其他因素也不可避免地让我们必须进行文化调整。让我们回想一下无聊的讲道（sermon）。有时候，我们听到的讲道之所以显得无聊，是因为它持续的时间太长（或者太短），以至于听众无法保持专注。时间感知是人类生活中最具文化敏感性的领域之一。不同文化对“迟到”和“时间过长”的认知存在极大差异。例如，在美国，非裔和西班牙裔基督徒的礼拜仪式通常比大多数白人基督徒的耐心和舒适区多出至少 50% 的时间，包括更多的唱诗、祷告和讲道。因此，任何主持敬拜仪式的人，都不可避免地会调整文化，使其更贴近某些群体，同时远离其他群体。  
+
+讲道还可能因所选用的比喻和例证而失去听众的共鸣。当耶稣告诉那些向敌对人群传福音的人要避免“把珍珠丢给猪”（马太福音 7:6）时，他实际上结合了两个不同的领域——将福音的传讲与养猪的具体世界联系在一起。这样做比直接说“不要无限期地向敌对的人传讲福音”更具震撼力和启发性。然而，每个比喻必然要使用某些具体的生活经历。因此，一旦我们选择一个比喻，就会使某些人（那些有相同生活经验的人）更容易理解，而使其他人（那些没有这些生活经验的人）更难理解。  
+
+我曾与一位来自英国工人阶级背景的成熟基督徒交流过。他曾在一个坚定的福音派教会聚会一段时间，但该教会的所有领袖和牧师都来自上层阶级和精英学校。他们的讲道中经常使用他们熟悉的生活情境和概念，例如板球（cricket）和橄榄球（rugby）运动的比喻。他告诉我：“在我的世界里，人们对这些运动几乎一无所知，而这些持续出现的引用让我不断意识到自己没有上过他们的学校，也没有他们的特权。这虽然让我分心，但并非不可克服，因为我们在基督里是一体的。但我意识到，我无法带着我所服侍的工人阶级朋友们来这个教会。这些上层阶级的背景提醒会让我的朋友们很难认真听讲道。”  
+
+这是否意味着这间教会失败了？也许教会可以与这位信徒及其他人讨论，看看是否有方法能让自己变得对工人阶级群体不那么陌生。但这种调整始终是有限度的。传道者必须选择某些比喻和概念，而这不可避免地会使信息对某些文化群体更具意义，而对其他群体则较少影响。我们需要尽可能地扩展，使福音信息更具包容性。但我们也必须意识到自身的局限性，不应抱有一种幻想，认为我们能够以一种方式传福音，使其同时适用于所有人。  
+
+### 领导力中的文化调整  
+
+文化不仅影响语言表达，还深入影响基督教群体的组织方式——包括人际关系、领导风格、牧养监督和教导方式。例如，几年前，我的一位韩国同工观察我们教会的牧师团队如何做决策。他注意到，作为主任牧师的我，并不会首先表明自己的观点，而是试图让每个人——即便是最年轻、最资浅的人——先表达意见；然后，我会肯定他们的意见，并尽量将其融入最终的决策。而在第一代韩国教会里，主任牧师会先明确表达自己的意见，然后其他人按照年龄和资历依次发表评论，而年轻的牧师往往只有在决策已成定局后才会发言。  
+
+这让我意识到，在我们教会的牧师决策过程中，不可能有一种脱离文化的方式。我们不可避免地会适应某种特定的文化。  
+
+一旦我们寻求沟通，我们就不可避免地在做各种文化调整。
+
 Here is a beautiful paradox that is easy to miss: the fact that we must express universal truth in a particular cultural context does not mean that the truth itself is somehow lost or less universal. D. A. Carson writes, "[While] no truth which human beings may articulate can ever be articulated in a
 culture-transcending way... that does not mean that the truth thus articulated does not transcend culture.”20
 
@@ -159,6 +185,34 @@ Finally, as we will see below, contextualization doesn't simply include language
 As soon as we seek to communicate, we will automatically be making all sorts of cultural moves.
 
 ## THE DANGER OF NOT CONTEXTUALIZING (OR OF THINKING YOU AREN'T)
+所有的福音事工和交流本质上都已经深深地适应了特定的文化。因此，有意识地进行文化处境化（contextualization）是至关重要的。如果我们从未刻意思考如何正确地将福音事工处境化以适应新的文化，我们就会在不知不觉中深受另一种文化的影响。这样一来，我们的福音事工将会对自身文化过度适应，而对新文化适应不足，最终导致对基督教信息的扭曲。  
+
+对于社会主导群体的成员来说，文化处境化的概念尤其难以理解。由于少数族裔必须在两种文化中生存——主流文化和他们自身的亚文化——他们往往更能察觉到文化对人们认知事物方式的深远影响。在电影《老爷车》（Gran Torino）中，一位名叫沃尔特·科瓦尔斯基（克林特·伊斯特伍德饰）的蓝领美国老人在底特律一个衰败的社区里与一个亚裔家庭做邻居。他无法理解赫蒙族（Hmong）的文化形式，而年长的赫蒙族人（不会说英语，完全生活在他们的族群环境中）也觉得沃尔特十分奇怪、无法理解。然而，赫蒙族少女苏（Sue）却是双文化背景的——她同时生活在两个世界里。因此，她既能理解和欣赏沃尔特，也能理解自己的父母和祖父母。正因如此，她能够有效地向双方沟通彼此的文化。这不正是我们在向远离福音的文化传递真理时所要做的事情吗？  
+
+在美国，盎格鲁裔美国人的公共生活和私人生活都在同一种文化中。因此，他们往往对文化缺乏敏感度。他们与自己的文化的关系，就像一条鱼被问及水是什么时会回答：“水是什么？”如果从未离开过水，就不会意识到自己正身处其中。盎格鲁裔基督徒有时会对文化处境化的讨论感到困扰。他们认为自己表达或实践福音的方式并非“盎格鲁式”的——这就是事情本来的样子。他们认为对传道、敬拜或事工方式的任何改变都会妥协福音。在这一点上，他们可能正犯耶稣所警告的错误——将“人的传统”提升至与圣经真理同等的地位（马可福音7:8）。当人们把自己文化中的时间观念、情感表达方式或沟通风格视为“基督徒应有的行为方式”时，就会发生这种情况。布鲁斯·尼科尔斯（Bruce Nicholls）写道：  
+
+> “当代文化混杂（syncretism）的一个例子是，不自觉地将圣经中的基督教等同于‘美国的生活方式’。这种文化混杂现象常见于西方和第三世界的中产阶级、郊区、保守派福音派教会中，他们似乎没有意识到自己的生活方式更符合资本主义社会的消费原则，而非新约圣经的现实。他们对布道和海外宣教的热情，往往被用来为自己物质主义和自满的生活方式辩护。”  
+
+缺乏文化意识会导致基督徒的生活和事工发生扭曲。生活在个人主义文化（如美国）中的信徒往往忽视深度群体关系的重要性，也不愿意接受属灵的问责和纪律。因此，许多基督徒“跳教会”，在多个教会间游走，却从不正式加入或真正融入任何一个教会。美国基督徒认为教会成员身份是可选的，他们把美国文化中的这种非圣经特征带入自己的基督徒生活。另一方面，生活在更具权威性和父权制文化中的基督徒，往往对圣经关于良心自由和恩典的教导视而不见。他们的领袖更倾向于强调责任，并采取强硬手段，而不是效法耶稣的话：“若有人愿意做首先的，他必做众人末后的，作众人的用人。”（马可福音9:35）  
+
+无法看清自己所受的文化影响，还会带来其他问题。牧师们最常犯的一个基本错误，就是机械地复制那些曾经影响过他们的事工方法和模式。在世界某个地方被某项事工感动后，他们便完全照搬其方法和模式，不做任何调整。如果他们受到一种45分钟逐节解经讲道方式的影响，或是一种特定的唱诗风格，或是某种特定的敬拜程序和时长，他们就会原封不动地照搬这些形式。他们在不知不觉间变得以方法为驱动、以程序为驱动，而不是以神学为驱动。他们是在将自己的事工表达方式处境化于自己，而不是处境化于他们想要触及的人群。  
+
+我曾深受感动地看到世界各地的教会和事工机构研究我们在救赎主长老会（Redeemer Presbyterian Church）的做法，并表达他们的欣赏，甚至希望向我们学习。但与此同时，我也感到失望的是，某些教会只是机械地模仿我们的项目——甚至连我们的公告单都照搬——却没有理解我们背后的神学原则。换句话说，他们没有做文化处境化的艰苦工作，没有反思自身的文化状况和视角，以更好地在他们的文化环境中传递福音。他们也没有花时间思考我们在救赎主教会如何调整我们的事工，以适应美国的城市文化。每个人都会进行文化处境化——但很少有人认真思考自己是如何做的。我们不仅要进行文化处境化，还要思考自己是如何进行的。我们必须让我们的文化处境化过程变得清晰可见，并且有意识地进行，以便自己和他人都能理解。  
+
+---
+
+### 讨论与思考问题  
+
+**1.** 本章将文化处境化定义为：“用符合圣经的答案，回应人们在特定时代和环境下提出的生命问题，即使他们可能不愿意听；使用他们能够理解的语言和形式；并通过他们能够感受到力量的方式（即使他们拒绝接受）进行劝导和论证。”请拆解这一定义的四个部分。你在哪些方面做得比较好？在哪些方面容易忽略？  
+
+**2.** 许多福音派信徒为文化处境化辩护时，认为这只是对基督教“次要部分”的调整，而“关键和基本的要素”必须保持不变，否则就会导致混杂或妥协。本章如何论述这种观点的危险性？  
+
+**3.** 作者提到：“没有一种放之四海而皆准的福音表达方式。”你如何理解这句话？你是否认同？为什么？  
+
+**4.** D.A. 卡森（D.A. Carson）指出：“人类所表达的任何真理，都无法以一种超越文化的方式表达。”在你的文化背景（家庭、家乡、国家、种族、教会等）中，你认为自己受到哪些价值观或偏见的影响？这些影响如何塑造了你对真理的表达？你是否曾经无意中忽略某些圣经主题？你是如何意识到这些偏见的？  
+
+**5.** 作者指出，许多牧师犯的一个基本错误是机械地复制他们所受影响的事工模式，而没有根据目标文化调整自己的事工方式。你是否在事工中见过类似的错误？你认为自己需要做些什么，才能有意识地进行文化处境化？  
+
 All gospel ministry and communication are already heavily adapted to a particular culture. So it is important to do contextualization consciously. If we never deliberately think through ways to rightly contextualize gospel ministry to a new culture, we will unconsciously be deeply contextualized to some other culture. Our gospel ministry will be both overadapted to our own culture and underadapted to new cultures at once, which ultimately leads to a distortion of the Christian message.23
 
 The subject of contextualization is particularly hard to grasp for members of socially dominant groups. Because ethnic minorities must live in two cultures — - the dominant culture and their own subculture they frequently become aware of how deeply culture affects the way we perceive things. In the movie Gran Torino, an older blue-collar American named Walt Kowalski (Clint Eastwood) lives alongside an Asian family in a deteriorating Detroit neighborhood. He finds it impossible to understand the cultural forms of the Hmongs, just as the elderly Hmongs (who cannot speak English and live completely within their ethnic enclave) find Walt strange and inexplicable. But the teenage Hmong girl, Sue, is bicultural — she lives in both worlds at once. So she understands and appreciates both Walt and her own parents and grandparents. As a result, she is able to communicate persuasively to both about the other. Isn't this the very thing we are doing whenever we present the truth of the gospel to a culture that has alienated itself from it?

@@ -1,4 +1,10 @@
 # Chapter 7 THE INEVITABILITY OF CONTEXTUALIZING
+Redeemer City to City 是一个致力于在世界各大城市推动教会植堂和福音运动的机构。作为我们全球事工的一部分，我们曾有机会与中国家庭教会的领袖交流。神正在以非凡的增长祝福中国的教会。然而，那些在乡村事工中经历过神祝福的中国教会和牧者，当他们进入迅速扩张的中国城市，并尝试用在乡村被祝福的方式来传讲福音和进行事工时，却发现果效不如预期。  
+
+十多年前，几个荷兰宗派曾向我们寻求帮助。尽管他们在城市以外的地区发展良好，但他们多年来一直未能在阿姆斯特丹建立新的、有活力的教会，而大多数现有教会也已消亡。这些领袖熟知福音，也拥有充足的资金资源，并且有强烈的宣教愿望。然而，他们在本国最大的城市却难以推动任何事工的开展。  
+
+在这两种情况下，原本在本国腹地蓬勃发展的事工，在城市中却收效甚微。人们可能会轻易得出结论：“城市里的居民过于属灵骄傲和刚硬。” 但我们所遇到的教会领袖选择谦卑地回应，并为问题承担责任。他们认识到，适用于非城市地区的福音事工需要调整，以适应城市文化。他们的判断是正确的。这种对文化的必要调整，就是我们所说的“处境化”（contextualization）的一个典型例子。
+
 Redeemer City to City is an agency that promotes church planting and gospel movements in the great city centers of the world.¹ As part of our global ministry, we have had opportunities to talk with Chinese house church leaders. God is blessing the church in China with extraordinary growth. However, when Chinese churches and ministers who had experienced God's blessing in their rural ministries entered the mushrooming cities of China and tried to minister and communicate the gospel in the same ways that had been blessed in the countryside, they saw less fruitfulness.
 
 Over a decade ago, several Dutch denominations approached us. While they were thriving outside of urban areas, they had not been able to start new, vital churches in Amsterdam in years — and most of the existing ones had died out. These leaders knew the gospel; they had financial resources; they had the desire for Christian mission. But they couldn't get anything off the ground in the biggest city of their country.2
@@ -6,6 +12,22 @@ Over a decade ago, several Dutch denominations approached us. While they were th
 In both cases, ministry that was thriving in the heartland of the country was unable to make much of a dent in the city. It would have been easy to say, "The people of the city are too spiritually proud and hardened." But the church leaders we met chose to respond humbly and took responsibility for the problem. They concluded that the gospel ministry that had fit nonurban areas well would need to be adapted to the culture of urban life. And they were right. This necessary adaptation to the culture is an example of what we call "contextualization."3
 
 ## SOUND CONTEXTUALIZATION
+**处境化（Contextualization）并不是——正如人们常常争论的那样——“迎合人们的耳朵，告诉他们想听的话。”** 相反，它是用圣经的答案回应人们在特定时代和环境中对人生的疑问，即便这些答案并非他们所想听见的。处境化的关键在于用他们能够理解的语言和形式，以他们能感受到的方式进行沟通和论证，即便他们可能最终拒绝福音。  
+
+健全的处境化意味着在不妥协福音本质和核心内容的前提下，将福音的信息和事工翻译、调整，使其适应特定文化。伟大的宣教任务在于，以一种不使福音显得不必要地陌生或格格不入的方式，向新的文化表达福音信息，同时不削弱或掩盖圣经真理所带来的冲击和冒犯性。处境化后的福音既要清晰、吸引人，同时也必须挑战罪人对自身的依赖，并呼召他们悔改。它既要适应并与文化建立联系，同时又要挑战并面对文化。如果我们没有适应文化，或者没有挑战文化——如果我们过度或不足地进行处境化——我们的事工就会缺乏果效，因为我们未能正确地进行处境化。  
+
+也许理解这个概念最简单的方法就是思考一个常见现象。你是否曾听过一篇符合圣经、教义准确的讲道，但却枯燥到让人想哭？是什么让它如此乏味？有时是因为讲道方式（比如单调的语调），但更常见的原因是，这篇讲道虽然教义正确，却与听众毫无关联。听众可能会想：“你告诉了我一些或许是真的事情，但无论如何，我并不关心。我看不出这对我的思考、感受和行为有何影响。” 一篇无聊的讲道之所以无聊，是因为它没有把真理带入听众的日常生活和现实世界。它没有将圣经的真理与特定时代和环境中人们的希望、叙事、恐惧和误解联系起来。它无法让听众甚至愿意相信基督教是真实的。换句话说，这样的讲道在处境化方面是失败的。  
+
+当我们忠实且熟练地进行处境化时，我们向人们展示，他们的社会“文化叙事”和内心的希望，唯有在耶稣基督里才能找到真正的答案和圆满的实现。这是什么意思呢？有些文化是实用主义导向的，鼓励人们积累财富和权力；有些文化是个人主义至上的，倡导个人自由高于一切；有些文化则以“荣誉与羞耻”为核心，强调尊重、名誉、责任，以及为家庭带来荣耀；还有些文化高度重视艺术、哲学和学术。这些被称为“文化叙事”，因为它们是一个群体用来解释自身存在意义的故事。然而，无论个人或文化的叙事是什么，健全的处境化都能向人们展示，他们人生故事的主线只有在基督里才能得到圆满的结局。  
+
+那么，处境化涉及文化，但文化究竟是什么？有效的处境化需要在最广义的层面上理解和应对文化。文化通常被狭义地理解为语言、音乐、艺术、食物和民俗，但实际上，它涉及人类在世界上的一切生活方式。文化是人类对自然原材料的加工和创造。我们用地球上的原材料建造房屋，使用声音和节奏创作音乐，将个人经历编织成故事，这些都构成了我们所处的文化环境。而所有这些行为，都是为了服务于特定的“主导真理”、核心信念和对现实世界的基本假设。  
+
+宣教士 G. Linwood Barney 将文化比作洋葱。最核心的部分是世界观——关于世界、宇宙秩序和人性的基本信念。紧接着的是价值观——什么被认为是善的、真的和美的。再外层是一系列社会制度，如法律体系、教育、家庭生活和治理结构，这些制度建立在世界观和价值观的基础之上。最外层，则是文化最容易观察到的部分，包括社会习俗、人类行为、物质产物、建筑环境等。有人批评这种“洋葱”或“阶梯”模型过于简单化，无法充分说明这些“层次”之间的互动及其对彼此的影响。例如，美国的州际高速公路系统催生了“汽车文化”，进而改变了传统社区模式，并影响了许多社会制度。因此，文化的变化并不是单向或线性的，而是高度互动的。  
+
+但关键在于，处境化福音必须考虑文化的所有这些层面。它不仅仅是改变人的行为，而是改变人的世界观。它不能仅仅停留在表面调整，比如改变音乐风格或服饰，而必须深入文化的核心。文化影响人类生活的方方面面，包括决策方式、情感表达、公共与私人的界限、个人与群体的关系、社会权力的运用，以及性别、代际、阶级和种族之间的互动方式。文化塑造人们对时间的理解、冲突解决方式、问题解决策略，甚至影响人们推理的方式。因此，进行福音事工时，必须考虑所有这些文化因素。正如大卫·威尔斯（David Wells）所言：“处境化不仅仅是圣经教义的实际应用，而是将教义转换为一种概念体系，使其能够融入当代社会结构和生活模式的现实之中。”  
+
+**熟练的处境化能力，是当今有效事工的关键之一。** 特别是在城市和文化中心的教会，更需要对处境化问题保持高度敏感。因为文化主要是在这些地方被塑造，并不断向新的方向发展。此外，城市是多种人类文化共存且相互碰撞的地方，因此文化的融合和复杂性在这里尤为突出。
+
 Contextualization is not-as is often argued -"giving people what they want to hear."4 Rather, it is giving people the Bible's answers, which they may not at all want to hear, to questions about life that people in their particular time and place are asking, in language and forms they can comprehend, and through appeals and arguments with force they can feel, even if they reject them.
 
 Sound contextualization means translating and adapting the communication and ministry of the gospel to a particular culture without compromising the essence and particulars of the gospel itself. The great missionary task is to express the gospel message to a new culture in a way that avoids making the message unnecessarily alien to that culture, yet without removing or obscuring the scandal and offense of biblical truth. A contextualized gospel is marked by clarity and attractiveness, and yet it still challenges sinners' self-sufficiency and calls them to repentance. It adapts and connects to the culture, yet at the same time challenges and confronts it. If we fail to adapt to the culture or if we fail to challenge the culture - if we under- or overcontextualize - our ministry will be unfruitful because we have failed to contextualize well.
@@ -23,6 +45,16 @@ But the main point here is that contextualizing the gospel in a culture must acc
 Skill in contextualization is one of the keys to effective ministry today. In particular, churches in urban and cultural centers must be exceptionally sensitive to issues of contextualization, because it is largely there that a society's culture is being forged and is taking new directions. It is also a place where multiple human cultures live together in uneasy tension, so cultural compounds are more complex and blended there.
 
 ## A BRIEF HISTORY OF THE TERM
+**“处境化”这一术语可能最早由台湾出生的周守仁（Shoki Coe）在1972年提出**。他是世界基督教协进会（World Council of Churches, WCC）成立的重要推动者之一。周守仁质疑了由亨利·范恩（Henry Venn）和鲁弗斯·安德森（Rufus Anderson）所提出的早期“本土教会运动”模式的局限性。范恩和安德森指导西方传教士在新文化中建立“自养、自立、自传”的教会。过去的传教士在异文化中建立教会后，长期掌控教会，只让本地信徒担任辅助性角色，并且明确要求本地基督徒全面接受西方的信仰表达方式。然而，“本土教会运动”则强调，传教士应视自己为临时工，其任务是进行初步的福音传播，并尽快将教会交给本地领导，使基督徒能够用自己的语言、音乐和文化来敬拜和服侍。  
+
+**这一模式是基督教宣教观的一大进步，但周守仁认为，光是让本地领袖掌管教会还不够**。他指出，传教士虽然把领导权交给了本地基督徒，但教会的形式——表达福音的方式、信仰架构和组织模式——仍然完全是西方式的。本地基督徒并没有被鼓励去创造性地思考如何将福音信息与他们自己的文化相结合。  
+
+世界基督教协进会的“神学教育基金”（Theological Education Fund, TEF）是第一个使用并推广“处境化”这一术语的机构。然而，最早的“处境化”实践却引发了严重的争议。当时，仍然具有很大影响力的存在主义神学家鲁道夫·布特曼（Rudolf Bultmann）及其学生恩斯特·凯瑟曼（Ernst Käsemann）的思想影响了WCC的神学方向。这些神学家认为，新约本身是高度适应希腊文化的产物，而希腊世界观并不具有永久性的权威。因此，他们主张，基督徒可以根据自身文化来决定“基督教启示的内在核心”，而其他部分则可以舍弃或调整。  
+
+**这种处境化的方式假设，圣经文本（圣经）和文化背景（处境）都是相对的，并且具有同等的权威**。通过一种辩证的互动过程，我们可以寻找到一种适合特定文化、特定时间的“基督教真理”（truth的小写t）。因此，几乎任何基督教信仰的核心内容——基督的神性、三位一体的教义、福音的恩典基础——都可以被抛弃，或根据不同文化的需求赋予全新的解释。以“适应文化”为名，教会可能会对基督教历史信仰进行激进的改动。  
+
+**这一现象的讽刺性极强**。最初提出处境化的目的，是希望让本地教会能够在没有西方思想框架的干预下进行神学思考。然而，WCC神学教育基金所推动的许多观点，本质上依然深受西方思想的影响。这种基于“非权威圣经观”的处境化，实际上来源于西方现代神学家的观点，而这些神学家本身已经接受了欧洲启蒙运动对超自然和神迹的怀疑态度。最终的结果是，基督教信仰再次被过度适应文化——不同的是，这次适应的不是19世纪传教士所代表的保守西方文化，而是20世纪西方学术界的自由派文化。
+
 The term contextualization may have first been used in 1972 by Shoki Coe, a Taiwanese-born man who was one of the key figures in the formation of the World Council of Churches.10 Coe questioned the adequacy of the older "indigenous church movement" model identified with Henry Venn and Rufus Anderson. Venn and Anderson directed Western missionaries to plant churches in new cultures that were "self-supporting, self-governing, and self-propagating." Older missionaries had planted churches in foreign cultures and maintained control of them indefinitely, using native Christians only in assisting roles. They also explicitly directed national Christians to adopt Western ways wholesale. The indigenous church movement, however, called missionaries to see themselves as temporary workers whose job was to do initial evangelism and then, as quickly as possible, to turn the churches over to indigenous, national leadership so the Christian churches could worship and minister in native languages, music, and culture.
 
 This was a good and important step forward in our understanding of how Christian mission is conducted. But Coe, who served as principal of Tainan Theological College, argued that something more than just empowering national leaders was needed. He observed that the missionaries still gave national leaders forms of church ministry — ways of expressing and formulating the gospel and structuring churches — that were unalterably Western. National Christians were not being encouraged to think creatively about how to communicate the gospel message to their own culture.
@@ -34,6 +66,39 @@ This approach to contextualization assumes that both the text (Bible) and contex
 The irony is deep. The original call for contextualization intended to allow national churches to do theological reflection without having extrabiblical, Western thought forms imposed on them. However, much of what the ecumenical WCC Theological Education Fund propagated was nonetheless deeply shaped by Western thinking. Contextualization based on the idea of a nonauthoritative Bible stems from the views of modern Western theologians who themselves accepted the European Enlightenment's skepticism about the miraculous and supernatural. The result as that, yet again, the Christian faith was overadapted to culture. This time it was not the older, more conservative Western culture of nineteenth-century missionaries, but the liberal culture of twentieth-century Western academia.
 
 ## THE DANGER OF CONTEXTUALIZING
+**由于这一历史背景，许多保守神学圈的人对“处境化”一词感到不安，这是完全可以理解的**。正如克雷格·布隆伯格（Craig Blomberg）在一篇关于处境化的文章中指出的：“许多接受普救论的人最初都是福音派……在西班牙语世界，许多解放神学家也是如此。” 在这些情况下，文化的价值观被置于圣经权威之上。  
+
+### **文化是中立的吗？**  
+将文化视为“中立”的观点实际上无法解释文化的影响力。詹姆斯·亨特（James Hunter）写道：“这种观点的问题在于……它假设了一个自由独立于文化之外的‘自我’，这个‘自我’不受其所在社群的道德承诺所束缚。但实际上，文化远比自由主义对‘自我’的理解所允许的更加广泛、强大和具有影响力。”  
+
+**尽管“处境化”一词在当时尚未出现，但这正是J·格雷沙姆·梅琴（J. Gresham Machen）在20世纪初所面对的问题**。在他的著作《基督教与自由主义》（*Christianity and Liberalism*）中，梅琴指出，自由派基督教试图解决一个核心问题：  
+> 基督教与现代文化之间的关系是什么？在科学时代，基督教是否仍然可以存在？  
+> 现代自由主义试图解决这一问题。它承认，科学可能会对基督教信仰的具体内容提出质疑，比如基督的人格教义，以及他通过死亡和复活带来的救赎。因此，自由派神学家希望挽救某些被认为是“基督教本质”的一般性宗教原则，而将这些具体信仰内容视为仅仅是暂时的象征。  
+
+梅琴继续说道：  
+> **事实上，自由派神学家在放弃一个又一个基督教教义之后，所保留的已不再是基督教，而是一种完全不同的宗教，甚至应归入一个完全不同的类别。**  
+
+### **梅琴对自由派基督教的批判**  
+梅琴指出，20世纪初的文化已经变得“自然主义化”——它完全拒绝任何超自然的神圣介入。在这种文化观下，一切事物都必须有一个自然的、科学的解释。然而，自由派基督教接受了这一文化信念，即使这明显违背了圣经的教导。自由派神学家为了让基督教变得“适合”现代人，重新定义了所有的教义，使其符合自然主义世界观。这种重新定义的基督教呈现出以下特征：  
+
+- **圣经充满了神圣的智慧，但这并不意味着它是无误的**，它只是一本有人类错误和矛盾的文献。  
+- **耶稣是神的儿子，但这并不意味着他是先存的、神圣的上帝之子**，他只是一个被神的灵充满的伟大人物。  
+- **耶稣的死不是为赎罪而献上的宇宙性事件，而只是一个激励人的爱与牺牲的榜样**。  
+- **成为基督徒并不意味着经历超自然的重生，而是意味着效法耶稣，遵循登山宝训的教导，在世界上实践爱与公义的生活**。  
+
+梅琴强烈地论证说，这种试图将基督教与自然主义哲学调和的努力，最终导致的不是对圣经信仰的适应，而是对基督教的根本性改变，使之成为了一种全新的宗教，几乎在每个重要的教义上都与经典基督教相悖。他在书中“救赎”一章中特别指出：  
+> **如果耶稣的救赎只是“榜样”，如果成为基督徒仅仅意味着效法耶稣，而不是重生得救，那么基督教的福音（因恩得救）就被替换成了一种“因行为得救”的宗教。这样的教导不过是精致化的律法主义。**  
+
+### **处境化的危险：何时越界？**  
+**“处境化”一直以来——并且仍然常常——被用作宗教混合主义（syncretism）的借口**。这不仅仅是将福音适应特定文化，而是彻底放弃福音，将基督教过度适应一种完全不同的世界观，使之变质为另一种宗教。那么，我们该如何判断何时从合理的处境化走向了致命的混合主义呢？  
+
+在一篇有益的文章中，Natee Tanchanpongs 指出，福音派通常试图通过区分“核心”教义和“非核心”教义来捍卫处境化。他们认为，**只要保持福音的核心要素，调整次要部分，就仍然是合理的处境化；一旦“关键和基本的元素”丢失，就变成了混合主义**。  
+
+然而，Tanchanpongs 认为，这种划分是错误的，因为它假设圣经中的某些教义比其他教义更重要。事实上，Harvie Conn 早就指出，混合主义最可能发生在我们以“文化”为借口，拒绝让整本圣经说话的时候。**每一种文化都会觉得圣经的某些部分“吸引人”，而另一些部分“令人反感”**。因此，该文化中的人就会倾向于认为那些“吸引人的部分”更“重要”或“核心”，而将“令人反感的部分”视为可以忽略或修改的。**这正是梅琴所批评的自由派基督教所做的事情：他们拒绝了圣经中“令人反感”的超自然内容，取而代之的是一种不冒犯人的信仰**。  
+
+### **忠实的处境化 vs. 混合主义**  
+**混合主义的本质，是拒绝圣经的全权性，并挑选其中的教义来构建一种不会冒犯文化的基督教**。因此，**真正忠实的处境化，应该是在不改变圣经信息的情况下，使所有圣经教导都能被文化理解和实践**（见下文关于“在处境化中建立‘圣经中的圣经’的危险”）。
+
 Because of this history, the word contextualization makes many people in conservative theological circles nervous, as indeed it should. As Craig Blomberg points out in an essay on contextualization, "Many who have embraced universalism began life as evangelicals... In the Spanish-speaking world, the same is true of many liberation theologians."14 In all these cases, the values of a culture were given preference over the authority of Scripture.
 
 > ## IS CULTURE NEUTRAL?

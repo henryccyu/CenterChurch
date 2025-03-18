@@ -1,6 +1,4 @@
-# Chapter 9 BIBLICAL CONTEXTUALIZATION
-
-**圣经的文化处境化**
+# Chapter 9 BIBLICAL CONTEXTUALIZATION (圣经的文化处境化)
 
 圣经对人类文化以及福音如何塑造我们与文化的关系有很多教导。我将从三个关键经文入手，这些经文对我在建立圣经观的文化处境化方面提供了重要帮助。  
 

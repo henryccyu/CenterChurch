@@ -1,28 +1,67 @@
 # Chapter 12 REDEMPTION AND THE CITY
 
-正如我们在上一章中看到的，神出人意料地呼召以色列去服侍异教城市巴比伦——要在他们被掳期间，寻求那城的繁荣。从某种意义上说，神的子民至今仍未真正从这种被掳的状态中归回。在本章中，我们将看到这种“被掳模式”如何帮助我们理解新约时代（甚至是今日）教会与城市之间的关系——以及神最终如何解决城市所承载的巨大张力。
+正如我们在上一章中看到的，神出人意料地呼召以色列去服侍异教城市巴比伦——要在他们被掳期间，寻求那城的繁荣。从某种意义上说，神的子民至今仍未真正从这种被掳的状态中归回。在本章中，我们将看到这种“被掳模式”如何帮助我们理解新约时代（甚至是今日）教会与城市之间的关系——以及神最终如何解决城市所承载的巨大张力。¹
 
 在被掳期间，以色列不再是一个拥有政府和律法的民族国家。相反，它以一种“逆文化的团体”形式，存在于其他民族国家之中。从许多方面来说，这也是新约教会的形态，正如彼得和雅各所暗示的，他们称信徒为“散住的十二个支派”（雅各书 1:1）和“寄居者”（彼得前书 1:1）。彼得两次使用 *parepidemoi* 这个词来指“寄居者”——这个词有时被翻译为“旅居的外侨”。*Parepidemoi* 是指那些属于一个国家，却长期居住在另一个国家的人。他们的首要忠诚属于原本的祖国，那里的文化也塑造了他们的信仰和生活方式；但与此同时，他们也作为居住国的一份子，全然参与当地的生活。
 
 换句话说，这些“旅居的外侨”既不像原住民，也不是游客。他们虽然没有永久扎根，却也不是只路过的旅人。
 
-> **RESIDENT ALIENS AND CULTURE**
-> 
-As we saw in the last chapter, God unexpectedly calls Israel to serve the pagan city of Babylon - to seek its prosperity-while living in exile there. And in a sense, the people of God have yet to return from that state of exile. In this chapter, we will see how this exilic model helps us understand the relationship of the church to the city in New Testament times, and even today —
-and how God plans to resolve the great tension of the city at the end of time.¹
+> **RESIDENT ALIENS AND CULTURE**  
+> 在一篇关于彼得前书的文章《温柔的差异》中，米罗斯拉夫·沃尔夫指出，彼得所设想的那种介于逼迫与吸引、宣教与服事之间的张力，并不完全符合历史上任何一种基督与文化关系的模式。与那些主张改造文化，或提倡教会与国家联盟、类似基督教国度的模式不同，彼得认为福音始终会令人反感，永远不可能被这个世界完全接受或认可。这对那些希望建立一个本质上是基督教文化的基督徒来说，是一个警示。同时，与那些仅强调宣教、对影响文化极为悲观的模式不同，彼得却期待基督信仰和实践中的某些方面在任何异教文化中都会极具吸引力，从而促使人们归荣耀于神。²
 
-During the exile, Israel no longer existed in the form of a nation-state with a government and laws. Instead, it existed as a countercultural fellowship contained within other nation- states. In many ways, this is also the form of the New Testament church, as Peter and James suggest when they address believers as "the Dispersion" (Jas 1:1 ESV) and "exiles" (1 Pet 1:1 ESV). Twice Peter uses parepidemoi as a word for "exiles"—a word we sometimes translate as "resident aliens." Parepidemoi were citizens of one country and yet full-time residents of another. Their
-primary allegiance was to another country, and that country's culture was formative for their beliefs and practices. Yet they lived in their country of residence as full participants in its life. In other words, "resident aliens" lived neither as natives nor as tourists. Though they were not permanently rooted, neither were they merely travelers who were just passing through.
+如今，基督徒被认为是“属天耶路撒冷的公民”（加拉太书 4:26；参 腓立比书 3:20）。事实上，耶稣在一个意义深远的声明中告诉祂的跟随者，他们是“山上的城”（马太福音 5:14）。每一个属基督的群体，都是神在地上各个城市中的“城市”——祂的城。他们是被更新的神的子民（参 以赛亚书 32:14；但以理书 9:16）。他们最终的忠诚是归于神和祂的国度，但正如彼得和雅各使用的称呼那样，信徒并不是在属世的城市里“走过场”。这种态度正反映了神对被掳到巴比伦的犹太人所要求的平衡姿态。
+
+犹太人被掳到异教城市时，并不是要怀恨、消极地等待离开的那一天，而是要积极地参与当地的生活，在其中劳作、为之祈祷。同时，他们也不该同化于巴比伦文化，失去自己作为神圣洁子民的独特身份。神呼召他们为祂的荣耀，去承受和拥抱城市带来的张力——而这正是今天的基督徒也被呼召去做的。
+
+“寄居者”总会同时面对称赞与误解。耶稣教导说，基督徒的“好行为”应当让外人看见（马太福音 5:16），但祂也警告说，信徒要预备好面对误解与逼迫（5:10）。彼得也以类似的方式呼吁基督徒在异教社会中活出一种使人“看见你们的好行为，便在鉴察的日子归荣耀给神”的生命（彼前 2:12），但同样提醒他们要预备好忍受逼迫。彼得与耶稣都指出，这些“好行为”（希腊文中不仅指道德良善，也包括服事他人的行动）将使一些外邦人归荣耀于神。
+
+尽管存在这些相似性，基督教会与犹太人在巴比伦被掳时期仍有两个重要的不同：
+
+第一，犹太人在巴比伦几乎完全是通过生儿育女、繁衍家庭的方式“人数增多”（耶利米书 29:6）。而教会也必须在异教城市中作为神的新群体不断增长，但这种增长特别是通过传福音和门徒训练来实现的（使徒行传 6:1, 7；9:31；12:24）。此外，我们也可以看到旧约和新约之间，神对宣教呼召的一个重大转变。在旧约中，宣教是向心的（centripetal），也就是说，万邦被呼召“前来”看到以色列所展现的神荣耀（申命记 4:6-8），并一同敬拜神。而在新约中，宣教则成为离心的（centrifugal）——从中心向外扩展。神的子民被差派出去，将福音传遍世界（马太福音 28:16-20；使徒行传 1-2）。巴比伦的被掳和约拿的宣教使命，都是这种未来宣教模式转变的预表。
+
+第二，尽管犹太人与巴比伦社会有所接触，但他们仍严格遵守摩西律法，因此在衣着、饮食等方面，始终与巴比伦人有文化上的区别（例如但以理书 1:8）。单单是饮食规定就基本决定了犹太人必须与外邦人分开用餐。在《使徒行传》中，神甚至必须通过一个强烈而具体的异象来改变彼得，使他愿意接受进入一位外邦士兵家中的邀请（10:28-29）。在基督里，这些礼仪性和文化性的规条已不再适用（马可福音 7章；使徒行传 15:1-35）。耶稣主动与税吏和罪人一同吃饭，作为祂事工的一部分。这些新约的教导使基督徒可以比当时的犹太人更自由地参与城市文化的生活。然而，这种自由也使得基督徒更容易被同化或妥协。因此，作为天国未来的公民，基督徒必须清醒看见并避开文化中的偶像与不义，同时也享受神普遍恩典带来的美善。
+
+那么，为什么我们今天要将耶利米书第29章的劝勉应用在教会生活中呢？在圣经中，神的子民曾以三种不同的形式存在。从亚伯拉罕开始，他们以一个庞大的生物血缘家庭形式存在。从摩西时代起，他们成为一个民族国家，拥有律法、君王和军队，通过民事惩罚来执行神的律法。而在被掳时期，神的子民则成为分散在多国中的团体（即会堂），以信仰团契的形式存在。在那段时间内，神的律法不再以民事法的形式执行——不顺从的人会被逐出会众，但不会被处死。
+
+> **JONAH'S MISSION**
+> 约拿书预示了新约中“向外差派信徒”的离心式宣教使命，而不是旧约那种“呼召外邦人归来”的向心式使命。约拿是旧约中唯一被差遣到异教城市、呼召其悔改的先知。神最后的话语令人震撼——祂呼召约拿去爱那座美索不达米亚的大城尼尼微，因为那里有极其众多属灵上盲目的居民（约拿书 4:10-11）。³
+> 
+> **THE "CRUCIALITY" OF CITY MINISTRY IN THE BIBLE**  
+> 早期教会在城市中的事工之所以如此有效，Wayne Meeks 在《第一批城市基督徒》（*The First Urban Christians*）以及 Harvie Conn 在其多本著作中都作了详细分析。他们指出了三个“关键”因素：
+> 
+**文化上的关键性（Cultural cruciality）**：  
+在乡村，也许你能使村里为数不多的一两个律师信主；但若想影响整个法律界，你必须走进城市——那里有法学院、法律期刊出版社，以及这个行业中具影响力的关键机构。
+> 
+**全球性的关键性（Global cruciality）**：  
+在乡村，你可能只能接触到单一的族群，因为农村地区在社会结构上通常较为单一。然而在城市中传福音，你能接触到几十个不同的国家和族群。事实上，你可以借助一地通用的语言（*lingua franca*）来传递福音。这样，福音就能透过移民回流、探亲或留在原籍的方式，传回许多不同的文化当中。
+> 
+> **个人层面的关键性（Personal cruciality）**：  
+> 在乡村，人们生活在一个更抗拒变革、更加保守和传统的文化中；但在多元与高度流动的城市环境中，城市居民更开放于新观念——包括福音！城市的压力与多样性环境甚至能使最抗拒福音的人，对新的思维方式和生活方式产生开放态度。
+
+被掳归回之后，犹太人重新成为一个民族国家。然而，新约并没有以这种方式设想基督教会的存在。相反，它呈现的是一个延续中的教会——由天下万国中分散的人所组成（使徒行传 2章），正如以色列在被掳时期的状态一样（参 雅各书 1:1；彼前 1:1）。因此，我们有理由认为，教会在当今时代应当与世上的城市建立关系的方式，不应像亚伯拉罕、摩西或大卫时代那样，而应效法被掳时期神子民的做法。
+
+## CITY MINISTRY IN THE EARLY CHURCH
+在早期教会中，神的救赎使命已不再围绕某一个特定的城市，如耶路撒冷或巴比伦展开。世上的每一座城市都成了神宣教的首要目标。《圣经意象辞典》在“城市”一词的条目中写道：
+
+> “我们在《使徒行传》中进入的世界，是整本圣经中最具现代感的世界，因为它具有城市身份。大部分故事发生在希腊—罗马世界中那些著名的城市，而非乡村或村庄。这种以城市为主的世界，同时又是国际化和世界性的。从某种意义上说，城市在早期教会的历史中被‘正名’了——并不是说城市本身是良善的，或者对福音友好，而是因为城市是大多数人如今所居住的地方，也是权力与影响力结构存在的地方……我们可以清楚地看到，早期教会的宣教策略是向城市传福音。毫不夸张地说，在《使徒行传》中，教会几乎完全与城市联系在一起。”⁴
+
+在《使徒行传》第17章，保罗前往雅典——希腊罗马世界的知识中心；第18章，他去了哥林多——帝国的商业重镇之一；第19章，他到达以弗所——或许是罗马世界的宗教中心，是众多异教信仰的汇集地，尤其以帝王崇拜著称，有三座罗马皇帝的神庙。到了《使徒行传》结尾，保罗终于抵达了罗马本身——这个帝国在军事和政治上最具权力的中心。约翰·斯托得（John Stott）总结道：“保罗似乎有意按着策略，一步一步地前往一个又一个关键的城市中心。”⁵
+
+保罗在以弗所的事工揭示了城市宣教的若干优势。在《使徒行传》19章1节我们读到：“亚波罗在哥林多的时候，保罗经过上边的地方，就来到以弗所。”斯托得指出，在那一带，几乎所有的道路都通往以弗所。同样地，所有的大城市都是区域性和社会性的交通枢纽。保罗到了以弗所后，租用了“推喇奴的讲堂”（第9节）。斯托得解释说，这所讲堂是一间学校，中午时分常常空着两三个小时，人们那时会吃饭和休息。⁷ 保罗就在那段时间传讲福音，进行“dialegomenos”（辩证式对话），他不仅讲道，还与听众对话、辩论，回应他们的问题与反对意见。他向他们证明耶稣就是弥赛亚。“这事有两年之久，叫一切住在亚西亚的，或犹太人、或希利尼人，都听见主的道”（第10节）。因为他的事工发生在这座区域性大城市中，几乎所有吕家谷（Lycus Valley）的人都能接触到福音的传讲。
+
+斯托得观察到：“亚西亚所有居民，不论是买卖、探亲、泡澡堂、看竞技、看戏剧，还是敬拜女神（亚底米），都会不时来到以弗所。”通过影响这座城市，保罗就影响了整个社会的各个阶层，正如《歌罗西书》所显示的那样。在这封书信中，保罗继续关怀那些位于吕家谷城市中的门徒——老底嘉、希拉波立、歌罗西（西 4:13-16）——他们很可能是因保罗在以弗所的事工而信主的，尽管保罗本人从未亲自拜访过那些地方。这显示出：只要在城市中心展开福音事工，就能够有效地影响整个区域和周边社会。斯托得引用 J.A. Alexander 的见解指出，《使徒行传》呈现的是福音“透过在帝国关键位置逐步建立辐射中心或影响力源点”的传播模式。¹⁰ 斯托得总结说：
+
+> “这种城市化的进程……对基督教会提出了巨大的挑战。一方面，我们迫切需要基督徒规划师与建筑师、地方政府的从政者、城市事务专家、开发商以及社区社会工作者，为城市的公义、和平、自由与美丽而努力。另一方面，基督徒也需要亲身搬入城市，切实体验那里生活的痛苦与压力，为要赢得城市中的灵魂归向基督。‘通勤式基督教’（住在舒适的郊区，每周通勤到城市教会）无法替代真正的道成肉身式的参与。”¹¹
+
+As we saw in the last chapter, God unexpectedly calls Israel to serve the pagan city of Babylon - to seek its prosperity-while living in exile there. And in a sense, the people of God have yet to return from that state of exile. In this chapter, we will see how this exilic model helps us understand the relationship of the church to the city in New Testament times, and even today — and how God plans to resolve the great tension of the city at the end of time.¹
+
+During the exile, Israel no longer existed in the form of a nation-state with a government and laws. Instead, it existed as a countercultural fellowship contained within other nation- states. In many ways, this is also the form of the New Testament church, as Peter and James suggest when they address believers as "the Dispersion" (Jas 1:1 ESV) and "exiles" (1 Pet 1:1 ESV). Twice Peter uses parepidemoi as a word for "exiles"—a word we sometimes translate as "resident aliens." Parepidemoi were citizens of one country and yet full-time residents of another. Their primary allegiance was to another country, and that country's culture was formative for their beliefs and practices. Yet they lived in their country of residence as full participants in its life. In other words, "resident aliens" lived neither as natives nor as tourists. Though they were not permanently rooted, neither were they merely travelers who were just passing through.
 
 > ### RESIDENT ALIENS AND CULTURE
 >
-> In an article on 1 Peter titled "Soft Difference," Miroslav Volf shows how the tension Peter envisioned between persecution and attraction and between evangelism and service does not fit neatly into any of the historic models of relating Christ to culture. Unlike models that call for a transformation of culture or a Christendom-like alliance of church
-and state, Peter expects the gospel to always be highly offensive and never completely embraced or accepted by the world. This is a caution to those Christians who hope to bring about an essentially Christian culture. And unlike models that call solely for evangelism and are highly pessimistic about influencing culture, Peter nonetheless expects
-some aspects of Christian faith and practice to be highly attractive in any pagan culture, thus influencing people to praise God.2
+> In an article on 1 Peter titled "Soft Difference," Miroslav Volf shows how the tension Peter envisioned between persecution and attraction and between evangelism and service does not fit neatly into any of the historic models of relating Christ to culture. Unlike models that call for a transformation of culture or a Christendom-like alliance of church and state, Peter expects the gospel to always be highly offensive and never completely embraced or accepted by the world. This is a caution to those Christians who hope to bring about an essentially Christian culture. And unlike models that call solely for evangelism and are highly pessimistic about influencing culture, Peter nonetheless expects some aspects of Christian faith and practice to be highly attractive in any pagan culture, thus influencing people to praise God.2
 
-Christians are now considered citizens of "the Jerusalem that is above" (Gal 4:26; see Phil 3:20). Indeed, in a significant statement, Jesus tells his followers that they are a "city on a hill" (Matt 5:14). Communities of Christ-followers are God's "city" within every earthly city. They are the renewed people of God (see Isa 32:14; Dan 9:16). Their ultimate allegiance belongs to God and his kingdom, yet, in keeping with the term used by Peter and James, believers are not just "passing through" their earthly cities. This reflects the same balanced attitude that Jewish
-exiles were called to have toward Babylon. The Jewish exiles were not to hate the pagan city as they bided their time, waiting for the day of their departure. They were to be fully involved in its life, working in it and praying for it. At the same time, they were not to adopt its culture or lose their distinctive identity as God's holy people. God called the Jewish exiles to accept and embrace
-the tension of the city for the sake of God's glory — and this is exactly what today's Christians are called to do as well.
+Christians are now considered citizens of "the Jerusalem that is above" (Gal 4:26; see Phil 3:20). Indeed, in a significant statement, Jesus tells his followers that they are a "city on a hill" (Matt 5:14). Communities of Christ-followers are God's "city" within every earthly city. They are the renewed people of God (see Isa 32:14; Dan 9:16). Their ultimate allegiance belongs to God and his kingdom, yet, in keeping with the term used by Peter and James, believers are not just "passing through" their earthly cities. This reflects the same balanced attitude that Jewish exiles were called to have toward Babylon. The Jewish exiles were not to hate the pagan city as they bided their time, waiting for the day of their departure. They were to be fully involved in its life, working in it and praying for it. At the same time, they were not to adopt its culture or lose their distinctive identity as God's holy people. God called the Jewish exiles to accept and embrace the tension of the city for the sake of God's glory — and this is exactly what today's Christians are called to do as well.
 
 Resident aliens will always live with both praise and misunderstanding. Jesus taught that Christians' "good deeds" are to be visible to the pagans (Matt 5:16), but he also warns his followers to expect misunderstanding and persecution (v. 10). In a similar way, Peter calls Christians to live in the midst of pagan society in such a way that others will see their "good deeds and glorify God" (1 Pet 2:12), but he warns them to expect persecution nonetheless. Both Peter and Jesus indicate that these "good deeds" (which in the Greek meant not merely personal morality but also acts of service to others) will lead at least some pagans to glorify God.
 

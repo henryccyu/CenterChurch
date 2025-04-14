@@ -48,7 +48,7 @@
 
 斯托得观察到：“亚西亚所有居民，不论是买卖、探亲、泡澡堂、看竞技、看戏剧，还是敬拜女神（亚底米），都会不时来到以弗所。”通过影响这座城市，保罗就影响了整个社会的各个阶层，正如《歌罗西书》所显示的那样。在这封书信中，保罗继续关怀那些位于吕家谷城市中的门徒——老底嘉、希拉波立、歌罗西（西 4:13-16）——他们很可能是因保罗在以弗所的事工而信主的，尽管保罗本人从未亲自拜访过那些地方。这显示出：只要在城市中心展开福音事工，就能够有效地影响整个区域和周边社会。斯托得引用 J.A. Alexander 的见解指出，《使徒行传》呈现的是福音“透过在帝国关键位置逐步建立辐射中心或影响力源点”的传播模式。¹⁰ 斯托得总结说：
 
-> “这种城市化的进程……对基督教会提出了巨大的挑战。一方面，我们迫切需要基督徒规划师与建筑师、地方政府的从政者、城市事务专家、开发商以及社区社会工作者，为城市的公义、和平、自由与美丽而努力。另一方面，基督徒也需要亲身搬入城市，切实体验那里生活的痛苦与压力，为要赢得城市中的灵魂归向基督。‘通勤式基督教’（住在舒适的郊区，每周通勤到城市教会）无法替代真正的道成肉身式的参与。”¹¹
+- “这种城市化的进程……对基督教会提出了巨大的挑战。一方面，我们迫切需要基督徒规划师与建筑师、地方政府的从政者、城市事务专家、开发商以及社区社会工作者，为城市的公义、和平、自由与美丽而努力。另一方面，基督徒也需要亲身搬入城市，切实体验那里生活的痛苦与压力，为要赢得城市中的灵魂归向基督。‘通勤式基督教’（住在舒适的郊区，每周通勤到城市教会）无法替代真正的道成肉身式的参与。”¹¹
 
 As we saw in the last chapter, God unexpectedly calls Israel to serve the pagan city of Babylon - to seek its prosperity-while living in exile there. And in a sense, the people of God have yet to return from that state of exile. In this chapter, we will see how this exilic model helps us understand the relationship of the church to the city in New Testament times, and even today — and how God plans to resolve the great tension of the city at the end of time.¹
 

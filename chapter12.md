@@ -25,7 +25,7 @@
 
 > **JONAH'S MISSION**
 > 约拿书预示了新约中“向外差派信徒”的离心式宣教使命，而不是旧约那种“呼召外邦人归来”的向心式使命。约拿是旧约中唯一被差遣到异教城市、呼召其悔改的先知。神最后的话语令人震撼——祂呼召约拿去爱那座美索不达米亚的大城尼尼微，因为那里有极其众多属灵上盲目的居民（约拿书 4:10-11）。³
-> 
+
 > **THE "CRUCIALITY" OF CITY MINISTRY IN THE BIBLE**  
 > 早期教会在城市中的事工之所以如此有效，Wayne Meeks 在《第一批城市基督徒》（*The First Urban Christians*）以及 Harvie Conn 在其多本著作中都作了详细分析。他们指出了三个“关键”因素：  
 > **文化上的关键性（Cultural cruciality）**：  

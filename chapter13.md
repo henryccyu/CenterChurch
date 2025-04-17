@@ -1,4 +1,4 @@
-Chapter 13 THE CALL TO THE CITY
+# Chapter 13 THE CALL TO THE CITY
 Paul and other Christian missionaries went to great cities because when Christianity was planted there, it spread regionally (cities were the centers of transportation routes); it also spread globally (cities were multiethnic, international centers, and converts took the gospel back to their homeland); and finally it more readily affected the culture (the centers of learning, law, and
 government were in the cities). As we will see in this chapter, the importance of cities for Christian mission today is, if anything, even greater.
 

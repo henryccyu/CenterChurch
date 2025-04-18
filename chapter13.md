@@ -154,4 +154,85 @@ move outward to gain additional space for their growing families. In each case, 
 whose members will spread naturally throughout the adjoining region and into other great cities. In other words, one of the best ways to reach a region and country is to reach your own city!
 
 > **ONE OF HISTORY'S GREATEST OPPORTUNITIES**
-> 
+> Cities can have a major impact on reaching hard-to-reach peoples with the gospel. This is the belief of missionary-theologian Roger Greenway:
+>
+> It may be helpful to those who harbor misgivings about cities... to reflect on the fact that urbanization as a present fact of life for most of the human family is a reality under the providential control of God. In Acts 17:26-27, the apostle Paul observes, "He determined the times set for them and the exact places where they should live. God did this so men would seek him and perhaps reach out for him and find him." Viewed in light of these verses, city growth is not something to be perceived as entirely the work of the devil, but as part of God's providential plan in history. God's redemptive purpose behind urban growth is that "men should seek him and reach out for him"...
+>
+> Pressed together in metropolises, the races, tribes, and diverse people groups are geographically more accessible than ever before. In some cases the processes of change that new urbanites pass through make them more receptive to the gospel. If this is the case, world urbanization should be viewed in an eschatological as well as missionary framework. God in our time is moving climactically through a variety of social, political, and economic factors to bring earth's peoples into closer contact with one another, into greater interaction and interdependence, and into earshot of the gospel. By this movement God carries forward his redemptive purposes in history. A sign of our time is the city. Through worldwide migration to the city God may be setting the stage for Christian mission's greatest and perhaps final hour.27
+
+## THE OPPORTUNITY OF MINISTRY IN CITIES
+The growth in size and influence of cities today presents the greatest possible challenge for the church. Never before has it been so important to learn how to do effective ministry in cities, and
+yet, by and large, evangelical Christianity in the United States is still nonurban.
+
+Along with these challenges comes a range of unique opportunities. I see four important groups of people who must be reached to fulfill the mission of the church, and each of them can
+best be reached in the cities.  
+1. The younger generation. The prospects for advancement, the climate of constant innovation and change, the coming together of diverse influences and people — all of these appeal
+to young adults. In the United States and Europe, the young disproportionately want to live in cities, and for the highly ambitious, the numbers are even higher. In a New York Times op-ed
+column, "I Dream of Denver," David Brooks looks at Pew Research Center data that shows the sharp difference between younger Americans and older Americans as to their preference for cities:  
+- _Cities remain attractive to the young. Forty-five percent of Americans between the ages of eighteen and thirty-four would like to live in New York City. But cities are profoundly unattractive
+to people with families and to the elderly. Only 14 percent of Americans thirty-five and older are interested in living in New York City. Only 8 percent of people over sixty-five are drawn to
+Los Angeles, 28_
+
+This means, of course, that if the church in the West remains, for the most part, in the suburbs of Middle America and neglects the great cities, it risks losing an entire generation of
+American society's leaders.
+
+One of the reasons cities are filled with young adults is that they are also usually filled with students. In university towns it is obvious to the casual observer that students are an
+important part of the demographic. In large cities, however, there are often enormous numbers of undergraduate and graduate students, but the size and diversity of the urban population
+make college students less visible. Yet students constitute an extremely important mission field, and urban students have far more local job opportunities available to them after graduation
+than do those who go to school in "college towns." As a result, college students in cities who are won to the faith are a significant source of future leaders for urban churches.
+
+2. The "cultural elites." The second group is made up of those who have a disproportionate influence on how human life is lived in a society because they exert power in business,
+publishing, the media, the academy, and the arts. These people live or spend much of their time in city centers. Since cities now influence the culture and values of the world more than ever, the
+single most effective way for Christians to influence the culture of a nation is to have large numbers of them stay in cities and simply "be the church" there. Also, for all the reasons noted above,
+ministry that is effective in a world city travels well. Ministry in rural areas of a country may have little transferability to rural areas in other countries. But ministry forms that are effective in
+one center city are likely to have wide appeal to other center cities, especially with the younger generation.
+
+Some Christians may complain, "We are losing the culture wars." This comment comes from the fact that relatively small groups living disproportionately in cities exert far more cultural
+influence than evangelical Christians, who live disproportionately outside of cities. Every time I exit the 42nd Street subway station in Manhattan, I pass Viacom, the parent company of MTV.
+Few institutions have had a greater cultural impact on an entire generation than MTV. I once read that years of Communist rule had not been able to erode the distinct ethnic identity of the
+Hungarian minority in Romania. Now, however, a global youth culture is turning Hungarian youth away from their cultural roots. Global consumer youth culture is pumped from Manhattan
+and Hollywood into the digital devices of kids all around the world. Fifteen-year-olds in rural Mexico are now more "urban" in their sensibilities than their parents are. If churches are to have
+any influence on the people who create institutions like MTV, they will have to live and minister in the same places where these people live — in the city.
+
+3. Accessible "unreached" people groups. Many people speak about the importance of engaging in mission to the hard-to-reach religious and cultural groups, people who live in remote
+places or in nations that forbid Christian mission work. But the currents of history are now sweeping many of these formerly unreachable people into cities as rural economies fail to sustain
+old ways of life.
+
+Millions of these newcomers in the burgeoning cities of the world are more open to the Christian faith than they were in their original context. Most have been uprooted from their
+familiar, traditional setting and have left behind the thicker kinship and tribal networks they once relied on, and most cities in the developing world often have "next to nothing in working
+government services."29 These newcomers need help and support to face the moral, economic, emotional, and spiritual pressures of city life, and this is an opportunity for the church to serve
+them with supportive community, a new spiritual family, and a liberating gospel message. Immigrants to urban areas have many reasons to begin attending churches, reasons that they did
+not have in their former, rural settings. "Rich pickings await any groups who can meet these needs of these new urbanites, anyone who can at once feed the body and nourish the soul."31
+
+But there is yet another way in which cities make formerly hard-to-reach peoples accessible. As I noted earlier, the urban mentality is spreading around the world as technology connects
+young generations to urbanized, global hyperculture. Many young people, even those living in remote places, are becoming globalized semi-Westerners, while their parents remain rooted in
+traditional ways of thinking. And so ministry and gospel communications that connect well with urban residents are also increasingly relevant and effective with young nonurban dwellers.
+
+> **MOVING TO THE CITY**  
+> In Two Cities, Two Loves, James Montgomery Boice considered the 10 percent ratio given in Nehemiah 11:1 for repopulating Jerusalem and suggested that in America, which is less agricultural, a proportional ratio should be even higher. His point was that if more of the nation's Christians deliberately moved into the largest cities and there lived out a life of love, truth, and servanthood, the culture would be fundamentally changed.30
+
+4. The poor. A fourth group of people who can and must be reached in cities is the poor. Some have estimated that one-third of the people representing the new growth in cities in the
+developing world will live in shantytowns. A great majority of the world's poor live in cities, and there is an important connection between reaching the urban elites and serving the poor of
+your city. First, an urban church's work among the poor will be a significant mark of its validity. It is one of the "good deeds" that Scripture says will lead pagans to glorify God (Matt 5:16; 1 Pet
+2:12). Similarly, once cultural elites are won to Christ, discipling them includes reorienting them to spend their wealth and power on the needs of the poor and the city instead of on themselves.
+In other words, an urban church does not choose between ministry to the poor and ministry to the professional class. We need the economic and cultural resources of the elites to help the poor,
+and our commitment to the poor is a testimony to the cultural elites, supporting the validity of our message.
+---
+We can be confident that the cities of the world will continue to grow in significance and power. Because of this, they remain just as strategic - if not more so-than they were in the
+days of Paul and the early church when Christian mission was predominantly urban. I would argue that there is nothing more critical for the evangelical church today than to emphasize and
+support urban ministry.
+
+The need is great, as is the cost― ministry in city centers is considerably more expensive on a per capita basis than it is away from the urban core. But the church can no longer ignore the
+profound and irreversible changes occurring in the world today. If Christians want to reach the unreached, we must go to the cities. To reach the rising generations, we must go to the cities. To
+have any impact for Christ on the creation of culture, we must go to the cities. To serve the poor, we must go to the cities.
+
+Many people who are not naturally comfortable in the city will have to follow the example of Abraham. Abraham was called to leave his familiar culture and become a pilgrim, seeking
+the city of God (Gen 12:1-4; Heb 11:8–10). And while Christians should not deliberately seek difficulty for its own sake, can we not follow the example of the incarnate Christ, who did not live
+in places where he was comfortable but went where he was useful (Matt 8:20; John 4:34; Rom 15:3)? Can we not face difficulty for his sake (cf. Heb 11:26), embracing both the difficulties and
+the riches of city living?
+
+> **QUESTIONS FOR DISCUSSION AND REFLECTION**
+> 1. Where have you witnessed some of the things discussed in this chapter (globalization, gentrification, city renaissance, reverse commuting, postmodernism, etc.) in the life of your nearest city? How do they affect life in that city? How do they affect ministry in that city?  
+> 2. If our future will be largely an urban culture, what changes should the church be making today to prepare and adapt?
+> 3. One significant trend discussed in this chapter is the influx of Christian immigrant populations and their increasing access to elite levels of business and society. How do you believe their contributions will shape the future of your ministry?
+> 4. Which of the following city-prone groups do you feel most passionate to reach: the younger generation, the "cultural elites," accessible "unreached" people groups, or the poor? Is that group present in your setting right now? How is urbanization affecting them? Take a moment to reflect on what it would be like to minister meaningfully to the group you have identified.

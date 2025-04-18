@@ -153,7 +153,7 @@ and move out to the suburbs when children are born. Immigrants come to the city 
 move outward to gain additional space for their growing families. In each case, the movement is from the center outward. As a result, a church that thrives in the city will create a community
 whose members will spread naturally throughout the adjoining region and into other great cities. In other words, one of the best ways to reach a region and country is to reach your own city!
 
-> **ONE OF HISTORY'S GREATEST OPPORTUNITIES**
+> **ONE OF HISTORY'S GREATEST OPPORTUNITIES**  
 > Cities can have a major impact on reaching hard-to-reach peoples with the gospel. This is the belief of missionary-theologian Roger Greenway:
 >
 > It may be helpful to those who harbor misgivings about cities... to reflect on the fact that urbanization as a present fact of life for most of the human family is a reality under the providential control of God. In Acts 17:26-27, the apostle Paul observes, "He determined the times set for them and the exact places where they should live. God did this so men would seek him and perhaps reach out for him and find him." Viewed in light of these verses, city growth is not something to be perceived as entirely the work of the devil, but as part of God's providential plan in history. God's redemptive purpose behind urban growth is that "men should seek him and reach out for him"...

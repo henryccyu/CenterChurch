@@ -112,7 +112,7 @@ countryside as intrinsically more pleasing to God. An urban missionary, Bill Kri
 where there are more people than plants. And since God loves people much more than plants, he loves the city more than the country." I think this is solid theological logic. The apex of creation
 is, after all, the making of male and female in the image of God (Gen 1:26-27). Therefore, cities, which are filled with people, are absolutely crammed full of what God considers the most
 beautiful sight in his creation. As we have noted before, cities have more "image of God" per square inch than anywhere else, and so we must not idealize the country as somehow a more
-spiritual place than the city. Even those (like Wendell Berry) who lift up the virtues of rural living outline a form of human community just as achievable in cities as in small towns.
+spiritual place than the city. Even those (like Wendell Berry) who lift up the virtues of rural living outline a form of human community just as achievable in cities as in small towns.  
 > **WENDELL BERRY AND THE "AGRARIAN MIND"**  
 > Many people point to the essayist Wendell Berry as a leading light of modern agrarians who seem to make a strong case for rural living over urban living. However, while Berry
 does laud the life of the farm and the small town, he defines the "agrarian mind" as essentially that which values the local:  

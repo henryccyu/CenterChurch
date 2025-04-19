@@ -109,3 +109,70 @@ city we see addressed in the Bible (see chapter 11).
 Sometimes the contrast of the countryside and the city is drawn even more starkly. My colleague at Westminster, Harvie Conn, told me about a man who said to him, "God made the
 country, and man built the suburbs, but the devil made the city." The theology behind this statement is dubious to say the least. And theologically, it is not a good idea to think of the
 countryside as intrinsically more pleasing to God. An urban missionary, Bill Krispin, explains why. Bill once said to me, "The country is where there are more plants than people; the city is
+where there are more people than plants. And since God loves people much more than plants, he loves the city more than the country." I think this is solid theological logic. The apex of creation
+is, after all, the making of male and female in the image of God (Gen 1:26-27). Therefore, cities, which are filled with people, are absolutely crammed full of what God considers the most
+beautiful sight in his creation. As we have noted before, cities have more "image of God" per square inch than anywhere else, and so we must not idealize the country as somehow a more
+spiritual place than the city. Even those (like Wendell Berry) who lift up the virtues of rural living outline a form of human community just as achievable in cities as in small towns.
+> **WENDELL BERRY AND THE "AGRARIAN MIND"**  
+> Many people point to the essayist Wendell Berry as a leading light of modern agrarians who seem to make a strong case for rural living over urban living. However, while Berry
+does laud the life of the farm and the small town, he defines the "agrarian mind" as essentially that which values the local:  
+    The agrarian mind is... local. It must know on intimate terms the local plants and animals and local soils; it must know local possibilities and impossibilities,
+opportunities and hazards. It depends and insists on knowing very particular local histories and biographies.13  
+He goes on to speak of the agrarian mind as (1) valuing work not for the money it can command but for what it provides for human flourishing; (2) valuing work that
+makes things that are concrete, durable, and useful; (3) embracing humility and having little need for growth and wealth; and (4) holding a commitment to a particular place
+for a lifetime and to conducting one's work, recreation, family life in the same place and within a web of thick, long-term, local personal relationships. Berry contrasts this with
+an "industrial mind" characterized by pride and a lack of respect and gratitude for nature and limitations and manifesting itself in exploitation and greed.  
+What this means, I believe, is that a person with an "agrarian" mind can live in a city very well. It is illuminating to compare the seminal work of Jane Jacobs (The Death
+and Life of the Great American Cities) with Berry's work. Jacobs was as committed as Berry to the importance of neighborhood — of local economies in which members of the
+neighborhood knew each other, had regular dealings with each other, and identified their own interests with the interests of their neighbors.
+
+How can you as a church or an individual live out this value if you are not located near a metropolitan area? I believe the best strategy is to include urban ministry in your global missions
+portfolio. This may mean supporting individual missionaries who serve in cities; an even more effective strategy is to support church-planting ministries in global cities. 15 Another promising
+trend is the creation of metro-wide partnerships of churches and other agencies to support the holistic work of spreading the gospel throughout the city. 
+
+2. Christians should become a dynamic counterculture where they live. It will not be enough for Christians to simply live as individuals in the city, however. They must live as a
+particular kind of community. In the Bible's tale of two cities, man's city is built on the principle of personal aggrandizement (Gen 11:1 - 4), while "the city of our God... is beautiful in its
+loftiness, the joy of the whole earth" (Ps 48:1-2). In other words, the urban society God wants is based on service, not selfishness. Its purpose is to spread joy from its cultural riches to the
+whole world. Christians are called to be an alternate city within every earthly city, an alternate human culture within every human culture-to show how sex, money, and power can be used in
+nondestructive ways; to show how classes and races that cannot get along outside of Christ can get along in him; and to show how it is possible to cultivate by using the tools of art, education,
+government, and business to bring hope to people rather than despair or cynicism.  
+Someone may ask, "Can't Christians be an alternate city out in the suburbs?" Absolutely! This is one of our universal callings as Christians. Yet again, though, the earthly city magnifies
+the effect of this alternate city and its unique forms of ministry. In racially homogeneous places, it is harder to show in pragmatic ways how the gospel uniquely undermines racial barriers (see
+Eph 2:11-22). In places where few artists live, it is pragmatically harder to show the gospel's unique effect on art. In economically homogeneous places, physically removed from the human
+poverty that is so pervasive in the world, it is pragmatically harder for Christians to realize how much money they are spending on themselves. What is possible in the suburbs and rural towns
+comes into sharper focus in the city. The city illustrates in vivid detail the unique community life that is produced as the fruit of the gospel.
+
+3. Christians should be a community radically committed to the good of their city as a whole. It is not enough for Christians to form a culture that merely "counters" the values of the
+city. We must also commit, with all the resources of our faith and life, to serve sacrificially the good of the whole city, and especially the poor.  
+It is especially important that Christians not be seduced by the mind-set of the "consumer city" — the city as adult playground. Cities attract young adults with a dizzying variety of
+amenities and diversions that no suburb or small town can reproduce. Even when holding constant factors such as income, education, marital status, and age, city residents are far more likely
+to go to a concert, visit a museum, go to the movies, or stop into a local pub than people outside of urban areas.16 On top of this, urban residents, more than their country cousins, tend to take
+an unmistakable pride in sophistication and hipness. Christians must not be tempted to come to the city (or at least not to remain in the city) for these motivations. Christians indeed can be
+enriched by the particular joys of urban life, but ultimately they live in cities to serve.
+> Jacobs called this "eyes on the street"- people who felt ownership of the environment, were committed to the common welfare, and watched the street, willing to take action
+if necessary. Both urban neighborhoods and small towns have mixed-land use in which residences, shops, businesses, schools, and so forth were all within walking distance
+of each other, which leads to more human-scale, local economy.  
+Jacobs's book was a polemic against the "suburbanization" of the city occurring in the 1960s by planners who were destroying local neighborhoods in order to build large-scale,
+homogeneous areas of retail, business offices, or residences. The New Urbanism today revels in the very small-scale, walkable, mixed-use communities that Jacobs describes.
+Political theorist Mark Mitchell writes these interesting words:  
+    Ultimately, healthy communities will only be realized when individuals commit to a particular place and to particular neighbors in the long-term work of making
+a place, of recognizing and enjoying the responsibilities and pleasures of membership in a local community. These good things are not the unique provenance of
+agrarian or rural settings. They can and have been achieved in urban and town settings. 14
+Christians must work for the peace, security, justice, and prosperity of their neighbors, loving them in word and deed, whether or not they believe the same things we believe. In Jeremiah
+29:7, God calls the Jews not just to live in the city but to love it and work for its shalom - its economic, social, and spiritual flourishing. Christians are, indeed, citizens of God's heavenly city,
+but these citizens are always the best possible citizens of their earthly city. They walk in the steps of the One who laid down his life for his opponents.
+Christians in cities must become a counterculture for the common good. They must be radically different from the surrounding city, yet radically committed to its benefit. They must
+minister to the city out of their distinctive Christian beliefs and identity. We see this balance demonstrated when we examine the early Christian understanding of citizenship. Paul used his
+Roman citizenship as leverage and defense in the service of his wider missional aims (Acts 16:37-38; 22:25-29; cf. 21:39; 23:27). He tells the Ephesians that because of the work of the gospel,
+"You are no longer foreigners and aliens, but fellow citizens with God's people and members of God's household, built on the foundation of the apostles and prophets, with Christ Jesus himself as
+the chief cornerstone" (Eph 2:19-20, emphasis mine).
+And to the church in Philippi, Paul writes, "Our citizenship is in heaven. And we eagerly await a Savior from there, the Lord Jesus Christ, who, by the power that enables him to bring
+everything under his control, will transform our lowly bodies so that they will be like his glorious body" (Phil 3:20-21). Though Roman citizenship was a beneficial badge and indeed carried
+valuable social status, Paul is clear that Christians are, first and foremost, citizens of heaven.
+Joseph presents an interesting Old Testament demonstration of this tension. When he is made prince of the land (Gen 41:39-40), he pursues the wealth and good of Egypt, just as he had
+previously done in prison and in Potiphar's house. Through his pursuit of the good of the city, salvation comes to the people of God. This story is especially striking because God puts Joseph in
+the position to save the city from hunger, not just the people of God.
+In the end, Christians live not to increase the prosperity of our own tribe and group through power plays and coercion but to serve the good of all the people of the city (regardless of
+what beliefs others hold). While secularism tends to make people individualistic, and traditional religiosity tends to make people tribal, the gospel should destroy the natural selfishness of the
+human heart and lead Christians to sacrificial service that benefits the whole city. If Christians seek power and influence, they will arouse fear and hostility. If instead they pursue love and seek
+to serve, they will be granted a great deal of influence by their neighbors, a free gift given to trusted and trustworthy people.

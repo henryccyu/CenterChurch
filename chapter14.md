@@ -155,24 +155,104 @@ of each other, which leads to more human-scale, local economy.
 Jacobs's book was a polemic against the "suburbanization" of the city occurring in the 1960s by planners who were destroying local neighborhoods in order to build large-scale,
 homogeneous areas of retail, business offices, or residences. The New Urbanism today revels in the very small-scale, walkable, mixed-use communities that Jacobs describes.
 Political theorist Mark Mitchell writes these interesting words:  
-    Ultimately, healthy communities will only be realized when individuals commit to a particular place and to particular neighbors in the long-term work of making
+- Ultimately, healthy communities will only be realized when individuals commit to a particular place and to particular neighbors in the long-term work of making
 a place, of recognizing and enjoying the responsibilities and pleasures of membership in a local community. These good things are not the unique provenance of
 agrarian or rural settings. They can and have been achieved in urban and town settings. 14
+
 Christians must work for the peace, security, justice, and prosperity of their neighbors, loving them in word and deed, whether or not they believe the same things we believe. In Jeremiah
 29:7, God calls the Jews not just to live in the city but to love it and work for its shalom - its economic, social, and spiritual flourishing. Christians are, indeed, citizens of God's heavenly city,
 but these citizens are always the best possible citizens of their earthly city. They walk in the steps of the One who laid down his life for his opponents.
+
 Christians in cities must become a counterculture for the common good. They must be radically different from the surrounding city, yet radically committed to its benefit. They must
 minister to the city out of their distinctive Christian beliefs and identity. We see this balance demonstrated when we examine the early Christian understanding of citizenship. Paul used his
 Roman citizenship as leverage and defense in the service of his wider missional aims (Acts 16:37-38; 22:25-29; cf. 21:39; 23:27). He tells the Ephesians that because of the work of the gospel,
 "You are no longer foreigners and aliens, but fellow citizens with God's people and members of God's household, built on the foundation of the apostles and prophets, with Christ Jesus himself as
 the chief cornerstone" (Eph 2:19-20, emphasis mine).
+
 And to the church in Philippi, Paul writes, "Our citizenship is in heaven. And we eagerly await a Savior from there, the Lord Jesus Christ, who, by the power that enables him to bring
 everything under his control, will transform our lowly bodies so that they will be like his glorious body" (Phil 3:20-21). Though Roman citizenship was a beneficial badge and indeed carried
 valuable social status, Paul is clear that Christians are, first and foremost, citizens of heaven.
+
 Joseph presents an interesting Old Testament demonstration of this tension. When he is made prince of the land (Gen 41:39-40), he pursues the wealth and good of Egypt, just as he had
 previously done in prison and in Potiphar's house. Through his pursuit of the good of the city, salvation comes to the people of God. This story is especially striking because God puts Joseph in
 the position to save the city from hunger, not just the people of God.
+
 In the end, Christians live not to increase the prosperity of our own tribe and group through power plays and coercion but to serve the good of all the people of the city (regardless of
 what beliefs others hold). While secularism tends to make people individualistic, and traditional religiosity tends to make people tribal, the gospel should destroy the natural selfishness of the
 human heart and lead Christians to sacrificial service that benefits the whole city. If Christians seek power and influence, they will arouse fear and hostility. If instead they pursue love and seek
 to serve, they will be granted a great deal of influence by their neighbors, a free gift given to trusted and trustworthy people.
+
+Christians should seek to live in the city, not to use the city to build great churches, but to use the resources of the church to seek a great, flourishing city. We refer to this as a "city growth"
+model of ministry rather than a strictly "church growth" model. It is the ministry posture that arises out of a Center Church theological vision.
+
+## SEVEN FEATURES OF A CHURCH FOR THE CITY
+It is infinitely easier to talk about living out this posture "on the ground" in our cities than to actually do it. The challenge is to establish churches and other ministries that effectively engage
+the realities of the cities of the world. The majority of evangelical Protestants who presently control the United States mission apparatus are typically white and nonurban in background.
+They neither understand nor in most cases enjoy urban life. As I have been arguing, many of the prevailing ministry methods are forged outside of urban areas and then simply imported,
+with little thought given to the unnecessary barriers this practice erects between urban dwellers and the gospel. Consequently, when ministers go into a city, they often find it especially hard
+to evangelize and win urban people — and equally difficult to disciple converts and prepare Christians for life in a pluralistic, secular, culturally engaged setting. Just as the Bible needs to be
+translated into its readers' vernacular, so the gospel needs to be embodied and communicated in ways that are understandable to the residents of a city.
+
+I believe churches that minister in ways that are indigenous and honoring to a city — whatever its size — exhibit seven vital features:  
+1. respect for urban sensibility
+2. unusual sensitivity to cultural differences
+3. commitment to neighborhood and justice
+4. integration of faith and work
+5. bias for complex evangelism
+6. preaching that both attracts and challenges urban people
+7. commitment to artistry and creativity
+
+We'll unpack each of these characteristics in more detail here, as well as note where several of them are covered more fully in later chapters of the book.
+
+1. Respect for urban sensibility. Our culture is largely invisible to us, which is why it is revelatory to leave one's society and live in a very different culture for a while. This experience
+enables us to see how much of our thought and behavior is not based on universal common sense but on a particular cultural practice. And it is often easier to see the big cultural differences
+than the small ones. Christians who move to cities within their own country (or even region) often underestimate the importance of the small cultural differences they have with urbanites.
+They speak and act in ways that are out of step with urban sensibilities, and if this is pointed out to them, they despise the criticism as snobbishness.
+
+Most American evangelical churches are middle class in their corporate culture. That is, they value privacy, safety, homogeneity, sentimentality, space, order, and control. In contrast,
+the city is filled with ironic, edgy, diversity-loving people who have a high tolerance for ambiguity and disorder. On the whole, they value intensity and access more than comfort and control.
+Center-city people appreciate sophistication in communication content and mode, and yet they eschew what they consider slickness, hype, and excessive polish. Being able to strike these
+nuanced balances cannot be a matter of performance. Christian leaders and ministers must genuinely belong to the culture so they begin to intuitively understand it.
+> **THE TRUE CHURCH**  
+> We must understand that the seven characteristics of a church that is effective in urban engagement in no way replaces the more foundational question of what, biblically
+speaking, constitutes a true church.17 The marks of a true church — what it does — are the Word rightly believed and declared, and the sacraments and discipline rightly
+administered. The purposes of the church—what it aims to accomplish with these ministries — are the worship of God, the edification of the saints, and the witness to the
+world. All true churches have these characteristics.
+> Yet a church may have all these biblical marks and qualities, and its ministry could be wholly unfruitful in the city. This is true for the same reason that every preacher who
+believes the Word rightly and expounds it faithfully will nonetheless preach sermons that are quite useful for a certain kind of hearer and yet confusing and even unhelpful
+for another. For more on this dynamic, see the Introduction and part 3 ("Gospel Contextualization").
+
+Center-city culture in particular is filled with well-informed, verbal, creative, and assertive people who do not respond well to authoritative pronouncements. They appreciate thoughtful
+presentations that are well argued and provide opportunities for communication and feedback. If a church's ministers are unable to function in an urban culture, choosing instead to create a
+“missionary compound” within the city, they will soon discover they cannot reach out, convert, or incorporate the people who live in their neighborhoods.
+
+2. Unusual sensitivity to cultural differences.
+Effective leaders in urban ministry are acutely aware of the different people groups within their area. Because cities are dense and diverse, they are always culturally complex. This means
+not only that different races and socioeconomic classes are in closer physical proximity than in other settings, but that other factors, such as ethnicity, age, vocation, and religion, create a
+matrix of subcultures. In New York City, for example, older downtown artists (over the age of fifty) are significantly different from younger artists. The Jewish community in New York City
+is vast and variegated. The cultural differences among African-Americans, Africans, and Afro-Caribbeans are marked, even as they share a broad sense of identity over against white culture.
+Some groups clash more with particular groups than others (e.g., African-Americans and Koreans in some cities). The gay community is divided between those who want to be more integrated
+into mainstream culture and those who do not. Asians talk about being "1.0, 1.5, or second generation."
+Fruitful urban ministers must first notice these differences and avoid thinking they are inconsequential. Then they must seek to understand these different people respectfully and
+navigate accordingly in communication and ministry without unnecessarily offending others. In fact, urban ministers should constantly surprise others with how well they understand other
+cultures. If you are an Anglo man, for example, you should occasionally hear something like, "I didn't think a white man would know about that."
+sense
+Those raised in culturally homogeneous areas who move to a city soon come to realize how many of their attitudes and habits — which they thought of as simply universal common
+were deeply tied to their race and class. For instance, Anglo-Americans don't see themselves as making decisions, expressing emotions, handling conflict, scheduling time and events,
+and communicating in a “white” way—they just think they are doing things the way everybody knows things ought to be done. In an urban setting, people typically become more sensitive to
+these blind spots. Why? Because they are acquainted with the aspirations, fears, passions, and patterns of several different groups of people through involvement with friends, neighbors, and
+colleagues who come from these groups. They have personally experienced how members of different ethnic or even vocational groups use an identical word or phrase to mean different things.
+No church can be all things to all people. There is no culturally neutral way of doing ministry. The urban church will have to choose practices that reflect the values of some cultural group,
+and in so doing it will communicate in ways that different cultural groups will see and hear differently. As soon as it chooses a language to preach in, or the music it will sing, it is making it
+easier for some people to participate and more difficult for others.
+Nevertheless, the ever-present challenge is to work to make urban ministry as broadly appealing as possible and as inclusive of different cultures as possible. One of the ways to do this
+is to have a racially diverse set of leaders "up front." When we see someone like ourselves speaking or leading a meeting, we feel welcomed in a hard-to-define way. Another way is to listen
+long and hard to people in our congregation who feel underrepresented by the way our church does ministry. In the end, we must accept the fact that urban churches will experience recurring
+complaints of racial insensitivity. Urban ministers live with the constant sense that they are failing to embrace as many kinds of people as they should. But they willingly and gladly embrace
+the challenge of building racial and cultural diversity in their churches and see these inevitable criticisms as simply one of the necessary costs of urban ministry.
+3. Commitment to neighborhood and justice.
+Urban neighborhoods are highly complex. Even gentrified neighborhoods, full of professionals, may actually be "bipolar." That is, alongside the well-off residents in their expensive
+apartments, private schools, and various community associations and clubs is often a "shadow neighborhood" filled with many who live in poverty, attend struggling schools, and reside in
+government housing.
+Urban ministers learn how to exegete their neighborhoods to grasp their sociological complexity. They are obsessed with studying and learning about their local communities.
+(Academic training in urban ethnography, urban demographics, and urban planning can be a great help to a church's lay leaders and staff members.) But faithful churches do not exegete their

@@ -232,22 +232,18 @@ not only that different races and socioeconomic classes are in closer physical p
 matrix of subcultures. In New York City, for example, older downtown artists (over the age of fifty) are significantly different from younger artists. The Jewish community in New York City
 is vast and variegated. The cultural differences among African-Americans, Africans, and Afro-Caribbeans are marked, even as they share a broad sense of identity over against white culture.
 Some groups clash more with particular groups than others (e.g., African-Americans and Koreans in some cities). The gay community is divided between those who want to be more integrated
-into mainstream culture and those who do not. Asians talk about being "1.0, 1.5, or second generation."
-
+into mainstream culture and those who do not. Asians talk about being "1.0, 1.5, or second generation."  
 Fruitful urban ministers must first notice these differences and avoid thinking they are inconsequential. Then they must seek to understand these different people respectfully and
 navigate accordingly in communication and ministry without unnecessarily offending others. In fact, urban ministers should constantly surprise others with how well they understand other
-cultures. If you are an Anglo man, for example, you should occasionally hear something like, "I didn't think a white man would know about that."
-
+cultures. If you are an Anglo man, for example, you should occasionally hear something like, "I didn't think a white man would know about that."  
 Those raised in culturally homogeneous areas who move to a city soon come to realize how many of their attitudes and habits — which they thought of as simply universal common
 were deeply tied to their race and class. For instance, Anglo-Americans don't see themselves as making decisions, expressing emotions, handling conflict, scheduling time and events,
 and communicating in a “white” way—they just think they are doing things the way everybody knows things ought to be done. In an urban setting, people typically become more sensitive to
 these blind spots. Why? Because they are acquainted with the aspirations, fears, passions, and patterns of several different groups of people through involvement with friends, neighbors, and
-colleagues who come from these groups. They have personally experienced how members of different ethnic or even vocational groups use an identical word or phrase to mean different things.
-
+colleagues who come from these groups. They have personally experienced how members of different ethnic or even vocational groups use an identical word or phrase to mean different things.  
 No church can be all things to all people. There is no culturally neutral way of doing ministry. The urban church will have to choose practices that reflect the values of some cultural group,
 and in so doing it will communicate in ways that different cultural groups will see and hear differently. As soon as it chooses a language to preach in, or the music it will sing, it is making it
-easier for some people to participate and more difficult for others.
-
+easier for some people to participate and more difficult for others.  
 Nevertheless, the ever-present challenge is to work to make urban ministry as broadly appealing as possible and as inclusive of different cultures as possible. One of the ways to do this
 is to have a racially diverse set of leaders "up front." When we see someone like ourselves speaking or leading a meeting, we feel welcomed in a hard-to-define way. Another way is to listen
 long and hard to people in our congregation who feel underrepresented by the way our church does ministry. In the end, we must accept the fact that urban churches will experience recurring
@@ -261,3 +257,125 @@ government housing.
 
 Urban ministers learn how to exegete their neighborhoods to grasp their sociological complexity. They are obsessed with studying and learning about their local communities.
 (Academic training in urban ethnography, urban demographics, and urban planning can be a great help to a church's lay leaders and staff members.) But faithful churches do not exegete their
+neighborhoods simply to target people groups, although evangelistic outreach is one of the goals. They are looking for ways to strengthen the health of their neighborhoods, making them safer
+and more humane places for people to live. This is a way to seek the welfare of the city, in the spirit of Jeremiah 29.
+Urban churches train their members to be neighbors in the city, not just consumers. As we have seen, cities attract young professionals by providing something of a "theme park" with
+thousands of entertainment and cultural options, and many new urban residents tend to view the city as simply a place where they can have fun, develop a résumé, and make friends who will
+be of help to them in the future. They plan to do this for a few years and then leave. In other words, they are using the city rather than living in it as neighbors (as Jesus defines the term in the
+parable of the Good Samaritan in Luke 10:25-37).
+
+In the middle years of the twentieth century, Jane Jacobs wrote the classic The Death and Life of Great American Cities. Jacobs's great contribution came in demonstrating the importance
+of street life for civil society. She observed how foot traffic and street life and a mixture of residences and businesses (viewed negatively by suburban zoners and even many urban planners at
+the time) were critical for economic vitality, for safety, for healthy human relationships, and for a strong social fabric. Jacobs was a major opponent of large-scale urban projects in the mid-
+twentieth century, the very projects that eventually ruined neighborhoods and the street life she had promoted.
+
+Jacobs writes the following:
+- Looking at city neighborhoods as organs of self-government, I can see evidence that only three kinds of neighborhoods are useful: (1) the city as a whole; (2) street neighborhoods; and (3)
+districts of large, subcity size (composed of 100,000 people or more in the case of the largest cities).  
+Each of these kinds of neighborhoods has different functions, but the three supplement each other in complex fashion. 18
+
+Jacobs explains how each of these is indeed a neighborhood and how each requires the participation of all urban residents to keep the city healthy. In other words, you must know your
+literal neighbors (your street neighborhood) and have some familiarity with the blocks around your residence (your district). And yet this in itself is not enough. "Ward politics" — in which
+one neighborhood pits its own good against the good of the other parts of the city - is unwholesome and unhealthy. So it is important for Christians and Christian ministries to find ways to
+be neighbors to the whole city, not just to their immediate street neighborhood. Failing to engage in the interests of the entire city often results in a lack of involvement in helping the poorest
+residents of the city. It is equally important that a church not minister just to the whole city while ignoring its local neighborhood. If this happens, a church can become a commuter church
+that no longer knows how to reach the kind of people who live in their immediate vicinity.
+
+Urban churches, then, should be known in their community as a group of people who are committed to the good of all their neighbors, near and far. It takes this type of holistic
+commitment from all residents and institutions to maintain a good quality of life in the city, and a church that is not engaged in this manner will (rightly) be perceived by the city as tribal.
+
+4. Integration of faith and work. Traditional evangelical churches tend to emphasize personal piety and rarely help believers understand how to maintain and apply their Christian
+beliefs and practice in the worlds of the arts, business, scholarship, and government. Many churches do not know how to disciple members without essentially pulling them out of their
+vocations and inviting them to become heavily involved in church activities. In other words, Christian discipleship is interpreted as consisting largely of activities done in the evening or on the
+weekend.
+> **RENTERS AND NEIGHBORHOOD**  
+> One "occupational hazard" of urban church planting is having a new church rent its worship space and therefore only corporately reside in a particular neighborhood for
+the few hours during which they rent the space. Often this means, on the one hand, that the neighbors have no idea there is a church meeting in that space; on the other
+hand, church members feel very little responsibility to "love their neighbors." It is important for churches that rent space to own their neighborhood. Church leaders should
+therefore be intentional about inhabiting their neighborhood. They should go to local community boards and neighborhood association meetings, as well as contact local
+government officials and representatives to discover how they can best serve the needs of the neighborhood. This has not been a strength of Redeemer Church in the past, and
+we are working to change this now that we have moved into our first owned space on the Upper West Side of Manhattan.
+
+Many vocations of city dwellers — fashion and the media, the arts and technology, business and finance, politics and public policy — demand great amounts of time and energy. These
+are typically not forty-hour-a-week jobs. They are jobs that dominate a person's life and thinking, and urban Christians are confronted with ethical and theological issues every day in the
+workplace. Preaching and ministry in urban churches must therefore help congregants form networks of believers within their vocational field and assist them in working through the
+theological, ethical, and practical issues they face in their work.
+
+In addition to the practical issues of how to do their individual work, urban Christians need a broader vision of how Christianity engages and influences culture. As we have discussed,
+cities are culture-forming incubators, and believers in such places have a significant need for guidance on how Christian faith should express itself in public life. For more on this subject, see
+part 5 (Cultural Engagement) and part 7 (Integrative Ministry).
+
+5. **Bias for complex evangelism**. Two kinds of urban churches can grow without evangelism. The first is the ethnic/immigrant church. While many ethnic churches are evangelistic, it is
+possible for them to grow without conversions, as new immigrants are always looking for connections to their own people in the city. Ethnic churches therefore become informal "community
+centers" for people of the same race and subculture — and they can grow simply by gathering new immigrants who want to be part of the fellowship. Second, churches in Western center
+cities can grow without evangelism by meeting the needs of one particular "immigrant subculture" - evangelical Christians-through preaching, music, children's programs, and so forth. In
+the past, in cities outside of the southern and midwestern United States, there simply was no constituency of "church shoppers" to attract. However, during the urban renaissance of the last
+fifteen years, this situation has changed, and cities have become desirable destinations for young adults from all over the country. Redeemer Presbyterian Church's experience is a good way to
+understand this phenomenon.  
+Redeemer was begun in Manhattan at the end of the 1980s, during the end of an era of urban decline. Crime was high and the city was losing population, and there were few or no
+Christians moving into New York City from the rest of the country. During the first several years of Redeemer's existence, it grew through aggressive but winsome evangelism. An evangelistic
+consciousness permeated the young congregation, and several hundred people came to faith out of nonbelief and nonchurched backgrounds over the first five years.  
+By the mid-1990s, the urban regeneration had begun, and we noticed that young adults from Christian backgrounds were moving to the cities. By the end of the decade, we found that we
+could (and did) grow substantially by drawing these folks in and helping them live out their Christian lives in service to the city. This is, of course, a very good and important thing, but it can
+also mask a lack of evangelism, and in the end, nonevangelistic church growth can't help reach the city in the most profound way. Recognizing this danger, our church has recommitted itself
+to reigniting our ethos of evangelism.  
+Not only must an urban church be committed to evangelism; it must be committed to the complexity of urban evangelism. There is no "one size fits all" method or message that can be
+used with all urban residents. For example, it is impossible for a Christian minister in London to share the gospel in exactly the same way with an atheist native Scot or a Muslim from Pakistan
+- yet they may both be the minister's literal neighbors. Urban evangelism requires immersion in the various cultures' greatest hopes, fears, views, and objections to Christianity. It requires a
+creative host of different means and venues, and it takes great courage.
+
+6. Preaching that both attracts and challenges urban people. Perhaps the greatest challenge for preachers in urban contexts is the fact that many secular and nonbelieving people may
+be in the audience. Of course, urban congregations can be as ingrown as any others, but certain dynamics of urban life can more readily make city church gatherings "spiritually mixed" and
+filled with nonbelievers. Urban centers have higher percentages of single people, and it is far easier for a single Christian to get a single, non-Christian friend to come to a church gathering
+than it is for a Christian family to get an entire non-Christian family to come. Singles make unilateral decisions (without having to consult others), tend to spend more time out of their homes,
+and are more open to new experiences. Also, cities are not "car cultures"; they are pedestrian cultures, and it is not unusual for people to simply walk off the street into church out of curiosity.
+Finally, cities are places where people come to "make it," are often separated from extended families, and are under a great deal of stress. As a result, urban people are often in a spiritual search
+mode and can be hungry for human connection and a sense of belonging.  
+The challenge for the urban preacher is to preach in a way that edifies believers and engages and evangelized nonbelievers at the same time. We will speak more about evangelistic
+worship in chapter 23. But here are some pointers.  
+First, be sure to preach sermons that ground moral exhortation in Christ and his work (see the section in chapter 6 titled "Preaching for Renewal"). Show how we live as we should only if
+we believe in and apply Christ's work of salvation as we should. In this way nonbelievers hear the gospel each week, yet believers have their issues and problems addressed as well.  
+Second, be very careful to think about your audience's premises. Don't assume, for example, that everyone listening trusts the Bible. So when you make a point from the Bible, it will help
+to show that some other trusted authority (such as empirical science) agrees with the Bible. Use it to promote trust of the Bible, saying something like, "See, the Bible was telling us centuries
+ago what science now confirms." That will help convince your hearers of that point so you can move on. By the end of the sermon, of course, you will be appealing only to God's Word, but in the
+early stages of the sermon you invite nonbelievers along by showing respect for their doubts about the Bible's reliability.  
+Third, do "apologetic sidebars." Try to devote one of the three or four sermon points mainly to the doubts and concerns of nonbelievers. Keep in your head a list of the ten or so biggest
+objections people have to Christianity. More often than not, the particular Scripture text has some way to address them. Always treat people's typical doubts about Christianity with respect.
+Jude reminds us to "be merciful to those who doubt" (Jude 22). Never give the impression that "all intelligent people think like I do." Don't hesitate to say, "I know this Christian doctrine may
+sound outrageous, but would you consider this...?"  
+Fourth, address different groups directly, showing that you know they are there, as though you are dialoguing with them: "If you are committed to Christ, you may be thinking this —
+but the text answers that fear," or "If you are not a Christian or not sure what you believe, then you surely must think this is narrow-minded - but the text says this, which speaks to this very
+issue."  
+Fifth, consider demeanor. The young secularists of New York City are extremely sensitive to anything that smacks of artifice to them. Anything that is too polished, too controlled, too
+canned will seem like salesmanship. They will be turned off if they hear a preacher use noninclusive gender language, make cynical remarks about other religions, adopt a tone of voice they
+consider forced or inauthentic, or use insider evangelical tribal jargon. In particular, they will feel "beaten up" if a pastor yells at them. The kind of preaching that sounds passionate in the
+heartland may sound like a dangerous rant in certain subcultures in the city.  
+Sixth, show a deep acquaintance with the same books, magazines, blogs, movies, and plays — as well as the daily life experiences — that your audience knows. Mention them and
+interpret them in light of Scripture. But be sure to read and experience urban life across a spectrum of opinion. There is nothing more truly urban than showing you know, appreciate, and
+digest a great diversity of human opinion. During my first years in New York, I regularly read The New Yorker (sophisticated secular), The Atlantic (eclectic), The Nation (older, left-wing secular),
+The Weekly Standard (conservative but erudite), The New Republic (eclectic and erudite), Utne Reader (New Age alternative), Wired (Silicon Valley libertarian), First Things (conservative Catholic).
+As I read, I imagine dialogues about Christianity with the writers. I almost never read a magazine without getting a scrap of a preaching idea.
+
+7. Commitment to artistry and creativity. According to the United States census, between 1970 and 1990 the number of people describing themselves as "artist" more than doubled,
+from 737,000 to 1.7 million. Since 1990, the number of artists continued to grow another 16 percent to nearly two million. Professional artists live disproportionately in major urban areas,
+and so the arts are held in high regard in the city, while in nonurban areas little direct attention is typically given to them. Urban churches must be aware of this. First, they should have high
+standards for artistic skill in their worship and ministries. If you do not have such standards, your church will feel culturally remote to the average urban dweller who is surrounded by artistic
+excellence even on the streets where talented artists sing and perform.  
+Second, city churches should think of artists not simply as persons with skills to use. They must connect to them as worshipers and hearers, communicating that they are valued for
+both their work and their presence in the community. This can be done in a variety of ways. One way includes being sensitive to your own region's or city's particular art history (e.g., Nashville
+is a music center; New England and the Midwest have many writers; New Mexico is a center for visual artists). Take time to listen to the artists and musicians in your church to understand
+something about the nature of the local artistic community and how the creative process works. Do your best to work with local artists and musicians rather than flying in your favorite artists
+long-distance for concerts or shows. When you make use of artists' gifts, take their advice on how the music and the art should be done; don't simply give orders to them.
+---
+God has given us the city for his purposes, and even though sin has harmed it, we should use the resources of the gospel to repair broken cities. Jesus himself went to the city and was
+crucified "outside the city gate" (Heb 13:12), a biblical metaphor for forsakenness. By his grace, Jesus lost the city-that-was, so we could become citizens of the city-to-come (Heb 11:10; 12:22),
+making us salt and light in the city-that-is (Matt 5:13-16).
+
+So we urge all the people of God to recognize and embrace the strategic intensity of cities—and therefore to respond to the urgent call to be in the city and for the city from every coordinate
+on the globe. City Vision recognizes God's creational intentions for cities and calls the people of God to be the city of God within the city of man.
+
+> **QUESTIONS FOR DISCUSSION AND REFLECTION**  
+> 1. If you are not located in a city, how might City Vision shape and improve the fruitfulness of your current ministry?
+> 2. How is agglomeration evident around you? Which types of trades, skills, inventors, or culture makers are concentrated most highly in your area? In what ways can your ministry seek face-to-face opportunities to minister to and through this population - that is, to become an "agglomerizing" church?
+> 3. Keller writes, "The city itself brings the gospel to us. The city will challenge us to discover the power of the gospel in new ways." How does this chapter suggest this happens? How have you experienced this?
+> 4. Which of the seven features of a church for the city does your church currently exhibit? How might those outside your community answer this question?

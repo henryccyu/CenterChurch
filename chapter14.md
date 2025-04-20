@@ -233,26 +233,31 @@ matrix of subcultures. In New York City, for example, older downtown artists (ov
 is vast and variegated. The cultural differences among African-Americans, Africans, and Afro-Caribbeans are marked, even as they share a broad sense of identity over against white culture.
 Some groups clash more with particular groups than others (e.g., African-Americans and Koreans in some cities). The gay community is divided between those who want to be more integrated
 into mainstream culture and those who do not. Asians talk about being "1.0, 1.5, or second generation."
+
 Fruitful urban ministers must first notice these differences and avoid thinking they are inconsequential. Then they must seek to understand these different people respectfully and
 navigate accordingly in communication and ministry without unnecessarily offending others. In fact, urban ministers should constantly surprise others with how well they understand other
 cultures. If you are an Anglo man, for example, you should occasionally hear something like, "I didn't think a white man would know about that."
-sense
+
 Those raised in culturally homogeneous areas who move to a city soon come to realize how many of their attitudes and habits — which they thought of as simply universal common
 were deeply tied to their race and class. For instance, Anglo-Americans don't see themselves as making decisions, expressing emotions, handling conflict, scheduling time and events,
 and communicating in a “white” way—they just think they are doing things the way everybody knows things ought to be done. In an urban setting, people typically become more sensitive to
 these blind spots. Why? Because they are acquainted with the aspirations, fears, passions, and patterns of several different groups of people through involvement with friends, neighbors, and
 colleagues who come from these groups. They have personally experienced how members of different ethnic or even vocational groups use an identical word or phrase to mean different things.
+
 No church can be all things to all people. There is no culturally neutral way of doing ministry. The urban church will have to choose practices that reflect the values of some cultural group,
 and in so doing it will communicate in ways that different cultural groups will see and hear differently. As soon as it chooses a language to preach in, or the music it will sing, it is making it
 easier for some people to participate and more difficult for others.
+
 Nevertheless, the ever-present challenge is to work to make urban ministry as broadly appealing as possible and as inclusive of different cultures as possible. One of the ways to do this
 is to have a racially diverse set of leaders "up front." When we see someone like ourselves speaking or leading a meeting, we feel welcomed in a hard-to-define way. Another way is to listen
 long and hard to people in our congregation who feel underrepresented by the way our church does ministry. In the end, we must accept the fact that urban churches will experience recurring
 complaints of racial insensitivity. Urban ministers live with the constant sense that they are failing to embrace as many kinds of people as they should. But they willingly and gladly embrace
 the challenge of building racial and cultural diversity in their churches and see these inevitable criticisms as simply one of the necessary costs of urban ministry.
+
 3. Commitment to neighborhood and justice.
 Urban neighborhoods are highly complex. Even gentrified neighborhoods, full of professionals, may actually be "bipolar." That is, alongside the well-off residents in their expensive
 apartments, private schools, and various community associations and clubs is often a "shadow neighborhood" filled with many who live in poverty, attend struggling schools, and reside in
 government housing.
+
 Urban ministers learn how to exegete their neighborhoods to grasp their sociological complexity. They are obsessed with studying and learning about their local communities.
 (Academic training in urban ethnography, urban demographics, and urban planning can be a great help to a church's lay leaders and staff members.) But faithful churches do not exegete their

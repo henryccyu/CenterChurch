@@ -377,35 +377,40 @@ It is especially important that Christians not be seduced by the mind-set of the
 amenities and diversions that no suburb or small town can reproduce. Even when holding constant factors such as income, education, marital status, and age, city residents are far more likely
 to go to a concert, visit a museum, go to the movies, or stop into a local pub than people outside of urban areas.16 On top of this, urban residents, more than their country cousins, tend to take
 an unmistakable pride in sophistication and hipness. Christians must not be tempted to come to the city (or at least not to remain in the city) for these motivations. Christians indeed can be
-enriched by the particular joys of urban life, but ultimately they live in cities to serve.
+enriched by the particular joys of urban life, but ultimately they live in cities to serve.  
 > Jacobs called this "eyes on the street"- people who felt ownership of the environment, were committed to the common welfare, and watched the street, willing to take action
 if necessary. Both urban neighborhoods and small towns have mixed-land use in which residences, shops, businesses, schools, and so forth were all within walking distance
 of each other, which leads to more human-scale, local economy.  
 Jacobs's book was a polemic against the "suburbanization" of the city occurring in the 1960s by planners who were destroying local neighborhoods in order to build large-scale,
 homogeneous areas of retail, business offices, or residences. The New Urbanism today revels in the very small-scale, walkable, mixed-use communities that Jacobs describes.
 Political theorist Mark Mitchell writes these interesting words:  
-- Ultimately, healthy communities will only be realized when individuals commit to a particular place and to particular neighbors in the long-term work of making
+> _Ultimately, healthy communities will only be realized when individuals commit to a particular place and to particular neighbors in the long-term work of making
 a place, of recognizing and enjoying the responsibilities and pleasures of membership in a local community. These good things are not the unique provenance of
-agrarian or rural settings. They can and have been achieved in urban and town settings. 14  
+agrarian or rural settings. They can and have been achieved in urban and town settings._ <sup>14</sup>  
 
 Christians must work for the peace, security, justice, and prosperity of their neighbors, loving them in word and deed, whether or not they believe the same things we believe. In Jeremiah
 29:7, God calls the Jews not just to live in the city but to love it and work for its shalom - its economic, social, and spiritual flourishing. Christians are, indeed, citizens of God's heavenly city,
 but these citizens are always the best possible citizens of their earthly city. They walk in the steps of the One who laid down his life for his opponents.  
+
 Christians in cities must become a counterculture for the common good. They must be radically different from the surrounding city, yet radically committed to its benefit. They must
 minister to the city out of their distinctive Christian beliefs and identity. We see this balance demonstrated when we examine the early Christian understanding of citizenship. Paul used his
 Roman citizenship as leverage and defense in the service of his wider missional aims (Acts 16:37-38; 22:25-29; cf. 21:39; 23:27). He tells the Ephesians that because of the work of the gospel,
-"You are no longer foreigners and aliens, but fellow citizens with God's people and members of God's household, built on the foundation of the apostles and prophets, with Christ Jesus himself as
+"You are no longer foreigners and aliens, but _fellow citizens with God's people and members of God's household_, built on the foundation of the apostles and prophets, with Christ Jesus himself as
 the chief cornerstone" (Eph 2:19-20, emphasis mine).  
+
 And to the church in Philippi, Paul writes, "Our citizenship is in heaven. And we eagerly await a Savior from there, the Lord Jesus Christ, who, by the power that enables him to bring
 everything under his control, will transform our lowly bodies so that they will be like his glorious body" (Phil 3:20-21). Though Roman citizenship was a beneficial badge and indeed carried
 valuable social status, Paul is clear that Christians are, first and foremost, citizens of heaven.  
+
 Joseph presents an interesting Old Testament demonstration of this tension. When he is made prince of the land (Gen 41:39-40), he pursues the wealth and good of Egypt, just as he had
 previously done in prison and in Potiphar's house. Through his pursuit of the good of the city, salvation comes to the people of God. This story is especially striking because God puts Joseph in
 the position to save the city from hunger, not just the people of God.  
+
 In the end, Christians live not to increase the prosperity of our own tribe and group through power plays and coercion but to serve the good of all the people of the city (regardless of
 what beliefs others hold). While secularism tends to make people individualistic, and traditional religiosity tends to make people tribal, the gospel should destroy the natural selfishness of the
 human heart and lead Christians to sacrificial service that benefits the whole city. If Christians seek power and influence, they will arouse fear and hostility. If instead they pursue love and seek
 to serve, they will be granted a great deal of influence by their neighbors, a free gift given to trusted and trustworthy people.  
+
 Christians should seek to live in the city, not to use the city to build great churches, but to use the resources of the church to seek a great, flourishing city. We refer to this as a "city growth"
 model of ministry rather than a strictly "church growth" model. It is the ministry posture that arises out of a Center Church theological vision.
 

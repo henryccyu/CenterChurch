@@ -6,20 +6,20 @@ PART 1: GOSPEL THEOLOGY
 
 PART 2: GOSPEL RENEWAL
 - [Chapter 4](chapter04.html)  
-- [Chapter 5](chapter05.html)  
+- [5. THE ESSENCE OF GOSPEL RENEWAL](chapter05.html)  
 - [Chapter 6](chapter06.html)  
 
 ### CITY
 PART 3: GOSPEL CONTEXTUALIZATION
-- [Chapter 7](chapter07.html)  
-- [Chapter 8](chapter08.html)  
-- [Chapter 9](chapter09.html)  
-- [Chapter 10](chapter10.html)
+- [7. THE INEVITABILITY OF CONTEXTUALIZING](chapter07.html)  
+- [8. BALANCED CONTEXTUALIZATION](chapter08.html)  
+- [9. BIBLICAL CONTEXTUALIZATION](chapter09.html)  
+- [10. ACTIVE CONTEXTUALIZATION](chapter10.html)
 
 PART 4: CITY VISUAL
-- [Chapter 11](chapter11.html)  
+- [11. THE TENSION OF THE CITY](chapter11.html)  
 - [12. REDEMPTION AND THE CITY](chapter12.html)  
-- [Chapter 13](chapter13.html)  
+- [13. THE CALL TO THE CITY](chapter13.html)  
 - [Chapter 14](chapter14.html)  
 
 PART 5: CULTURAL ENGAGEMENT

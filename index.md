@@ -20,7 +20,7 @@ PART 4: CITY VISUAL
 - [11. THE TENSION OF THE CITY](chapter11.html)  
 - [12. REDEMPTION AND THE CITY](chapter12.html)  
 - [13. THE CALL TO THE CITY](chapter13.html)  
-- [Chapter 14](chapter14.html)  
+- [14. THE GOSPEL FOR THE CITY](chapter14.html)  
 
 PART 5: CULTURAL ENGAGEMENT
 - [Chapter 15](chapter15.html)  

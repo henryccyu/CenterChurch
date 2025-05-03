@@ -1,55 +1,71 @@
-chapter 16
-THE CULTURAL RESPONSES OF THE CHURCH
+# Chapter 16 THE CULTURAL RESPONSES OF THE CHURCH
 In response to the cultural crisis that has shaken so many evangelicals out of their pietistic stance, Christians (particularly in the United States) have been answering the question of how to relate to culture in four basic ways, which I will call the Transformationist model, the Relevance model, the
 Counterculturalist model, and the Two Kingdoms model.¹ In the previous chapter, we sketched out the historical emergence of these views and some of their animating ideas, and in the following chapters we will address them in greater detail. I believe that setting out these four basic categories
 is a clarifying and important preparation to developing a Center Church vision for cultural engagement.
-DIFFERENCES AMONG NIEBUHR'S MODELS
-Niebuhr understood his first two models to be extreme opposites - "Christ against culture" sees culture most negatively, as an expression of human fallenness, while "Christ of culture" sees it most positively, as an expression of God's gracious activity. The other three
+
+> **DIFFERENCES AMONG NIEBUHR'S MODELS**
+>
+> Niebuhr understood his first two models to be extreme opposites - "Christ against culture" sees culture most negatively, as an expression of human fallenness, while "Christ of culture" sees it most positively, as an expression of God's gracious activity. The other three
 models - "Christ above culture," "Christ and culture in paradox,” and “Christ transforming culture" — are positions between the two extremes, with "Christ above culture" having the most positive view of culture of these three.
-Perhaps an illustration can help us distinguish the differences among the models within Niebuhr's framework. Think of a particular cultural product—say, a computer. The "Christ against culture" person may refuse to use it because it undermines human community. The
+>
+> Perhaps an illustration can help us distinguish the differences among the models within Niebuhr's framework. Think of a particular cultural product—say, a computer. The "Christ against culture" person may refuse to use it because it undermines human community. The
 "Christ of culture" person will adopt it fully, assured that it is something God has brought about. The "Christ above culture" person will also adopt it but only use it for the purposes of evangelism and Christian teaching. The "Christ and culture in paradox" person will use
 the computer with some wariness and take great care not to indulge too deeply. Finally, the "Christ transforming culture" person will study the effects of computers on human relationships, communities, and character and then develop particular ways to use computers
 that do not undermine but instead support human flourishing as the Bible defines it.
-Since I adapted this illustration from an article written for students on the website of Calvin College, some readers may rightly discern a Transformationist slant in this illustration. Still, it is helpful.
-THE PROBLEM WITH MODELS
-Over the last three decades, the alternatives that have emerged to the pietistic stance roughly resemble many of the models laid out in H. Richard Niebuhr's classic book Christ and Culture.2 Niebuhr lays out five basic ways of relating Christ to culture:
+>
+> Since I adapted this illustration from an article written for students on the website of Calvin College, some readers may rightly discern a Transformationist slant in this illustration. Still, it is helpful.
+
+## THE PROBLEM WITH MODELS
+Over the last three decades, the alternatives that have emerged to the pietistic stance roughly resemble many of the models laid out in H. Richard Niebuhr's classic book Christ and Culture.2 Niebuhr lays out five basic ways of relating Christ to culture:  
 1. Christ against culture: a withdrawal model of removing oneself from the culture into the community of the church
 2. Christ of culture: an accommodationist model that recognizes God at work in the culture and looks for ways to affirm this
 3. Christ above culture: a synthetic model that advocates supplementing and building on the good in the culture with Christ
 4. Christ and culture in paradox: a dualistic model that views Christians as citizens of two different realms, one sacred and one secular
-5. Christ transforming culture: a conversionist model that seeks to transform every part of culture with Christ
+5. Christ transforming culture: a conversionist model that seeks to transform every part of culture with Christ  
 Niebuhr considered the first model far too naive about the power of redemption and our escape from the effects of original sin. But he considered the second model far too untroubled by the cultural status quo and the ongoing reality of sin. He saw the third model as being at the same
 time too sanguine about both culture and Christ, lacking a sense of the importance of divine judgment, while he saw the fourth model as too pessimistic about the possibility for cultural improvement. Of all the models, Niebuhr considered the last model to be the most balanced - neither as
 pessimistic about culture as the sectarians and dualists nor as naively optimistic as the accommodationists and synthesists.
+
 Still, even though Niebuhr presented these five models as distinct ways of understanding the relationship between Christ and culture, he acknowledged the "artificiality” of talking about models. He wrote, "When one returns from the hypothetical scheme to the rich complexity of individual
 events, it is evident at once that no person or group ever conforms completely to a type."3 Niebuhr admitted that the sketching of models and categories has its pitfalls, namely, that some people conform well to a type, but many others do not.
+
 Why use models at all then? I believe there are two reasons. The first one Niebuhr himself states: "The method of typology... has the advantage of calling to attention the continuity and significance of the great motifs that appear and reappear in the long wrestling of Christians with their
 enduring problem. Hence it also helps us to gain orientation as we in our own time seek to answer the question of Christ and culture."4 In other words, each of the models has running through it a motif or guiding biblical truth that helps Christians relate to culture. Each model collects people and
 groups who have stressed that motif, and by doing so, it helps us see the importance of that particular principle.
+
 The second way the use of models helps us is by their very inadequacy. Many people and groups do not fit into any one category because they sense (rightly) that no one model can do justice to all of the important biblical themes. Within each model, then, there will be some who will be
 better at incorporating insights from other models, and some who conform exclusively to a type. So the fact that models often fail as descriptors is instructive in itself.5 Through their limitations, models encourage church leaders to avoid extremes and imbalances and to learn from all the motifs
 and categories.
+
 We can't make sense of what people do without relating them to others and noticing continuities and contrasts. This is the nature of modeling. Nevertheless, none of us like to be put into a category. Though I will show there are a variety of positions even within a particular model, some
 readers will still feel pigeonholed and should keep in mind that I am going to be expounding the sharpest and clearest versions of these positions. I realize that not everyone who identifies with a movement holds all its views in precisely the same way, and so I will necessarily have to flirt with
 overgeneralization. Yet if church and culture truly is the issue below the waterline of many of our struggles as the church, I believe it is critical to make and study maps of this particular landscape.
-THE TRANSFORMATIONIST MODEL
+
+## THE TRANSFORMATIONIST MODEL
 The first model for cultural engagement is the Transformationist model, which engages culture largely through an emphasis on Christians pursuing their vocations from a Christian worldview and thereby changing culture. Since the lordship of Christ should be brought to bear on every area of life-economics and business, government and politics, literature and art, journalism and the media, science and law and education - Christians should be laboring to transform culture, to (literally) change the world. As we said earlier, this model is heavily indebted to the work and thought of
 the Dutch theologian and political leader Abraham Kuyper.
-NIEBUHR AND SUBSEQUENT MODELS
-Niebuhr's work has been subjected to innumerable critiques. One set of critiques comes from proponents of particular views who believe Niebuhr caricatures them. Another critique is that Niebuhr assumes the "Constantinian settlement," namely, that Christianity will
+
+> **NIEBUHR AND SUBSEQUENT MODELS**
+>
+> Niebuhr's work has been subjected to innumerable critiques. One set of critiques comes from proponents of particular views who believe Niebuhr caricatures them. Another critique is that Niebuhr assumes the "Constantinian settlement," namely, that Christianity will
 be a society's established faith in some way. This is true to some extent, as Niebuhr does assume an identification of the majority of the citizenry with mainline Protestantism. Critics charge that if you assume that the era of "Christendom" is over, you have to redo all
 the categories—and you come up with those who hold that Christendom was a good idea (formal state or informal coercive social power as ways to promote the Christian faith) and those who do not. Others have argued that each of the five models have at least two
 approaches a healthy and an unhealthy one. Still others say that Niebuhr's work assumes monolithic, nonpluralistic cultures and is therefore less relevant today.
-In D. A. Carson's book-length biblical critique of Niebuhr, he concludes that the second model ("Christ of culture") is wrong and unbiblical, and that all of the rest of the models have biblical warrant and may be valid for a particular time and setting, but none can be said
+>
+> In D. A. Carson's book-length biblical critique of Niebuhr, he concludes that the second model ("Christ of culture") is wrong and unbiblical, and that all of the rest of the models have biblical warrant and may be valid for a particular time and setting, but none can be said
 to do justice to all the biblical themes and teachings about culture.
-Despite the withering criticism, most of the alternative approaches to culture that are proposed and promoted today correspond generally to Niebuhr's categories. It won't be hard to see the relationship of the four approaches I am identifying to the historic models
+>
+> Despite the withering criticism, most of the alternative approaches to culture that are proposed and promoted today correspond generally to Niebuhr's categories. It won't be hard to see the relationship of the four approaches I am identifying to the historic models
 of Niebuhr's Christ and Culture. They are not identical, and yet the four models presented in this chapter correspond roughly to Niebuhr's "Christ transforming culture" (Trans formationist), "Christ of culture" and "Christ above culture" (Relevance), "Christ against
 culture" (Counterculturalist), and "Christ and culture in paradox" (Two Kingdoms).
-James Hunter (To Change the World: The Irony, Tragedy, and Possibility of Christianity in Late Modernity [New York: Oxford University Press], 2010) critiques three of Niebuhr's models under the titles "Defensive Against" (Transformationist), "Relevant To" (Relevance), and
+>
+> James Hunter (To Change the World: The Irony, Tragedy, and Possibility of Christianity in Late Modernity [New York: Oxford University Press], 2010) critiques three of Niebuhr's models under the titles "Defensive Against" (Transformationist), "Relevant To" (Relevance), and
 "Purity From" (Counterculturalist). His critiques are helpful for better understanding the strengths and weaknesses of Niebuhr's original models.
+
 Kuyper contributed two fundamental insights to this debate. First, in every sphere of life Christians are to think and act distinctively as Christians. They do so because all cultural behavior presupposes a set of (at least implicit) religious beliefs. Everyone worships and is moved by some
 ultimate concern, and whatever this concern is will shape their cultural products. Kuyper's second basic insight is this: "Christians should articulate their way of thinking, speaking, and acting... in the course of interacting with non-Christians in our shared human practices and institutions."2
 In other words, if as a Christian I am conscious of my Christian beliefs as I am living and working, these beliefs will affect everything I do in life. My culture making will move a society in a particular direction, and consequently I will be changing culture.
+
 Though I am labeling as Transformationist those who center their engagement with culture on Kuyper's two key insights, it is important to note that the particular modes of application and implementation differ significantly among the various camps within this model. As we
 mentioned earlier, one of the groups is the Religious or Christian Right, who see cultural change effected primarily through political and issue-based activism. The language of the Religious Right includes calls for believers to penetrate cultural institutions, work out of a Christian worldview,
 and transform the culture in the name of Christ. The early architects of the movement (such as Francis Schaeffer, Chuck Colson, and others) based much of their work on Kuyper's insights. A 2008 article in Perspectives, a journal of politically progressive Calvinists, even lamented that the basic

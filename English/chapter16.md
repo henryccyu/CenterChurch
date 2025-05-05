@@ -99,15 +99,15 @@ Christians in our shared human practices and institutions. These views underlay 
 of living as a Christian in the social world.17
 
 Though we see clear differences among the various camps in the Transformationist model, all people working within this model share several commonalities.
-1. They view "secular" work as an important way to serve Christ and his kingdom, just as is ministry within the church. They understand Christ's saving purposes as including not only individual salvation but also the renewal of the material world. Therefore, Christians should not only
+**1.** They view "secular" work as an important way to serve Christ and his kingdom, just as is ministry within the church. They understand Christ's saving purposes as including not only individual salvation but also the renewal of the material world. Therefore, Christians should not only
 build up the church through Word and Sacrament but also work to restore and renew creation.  
 Theologian Herman Bavinck taught that God's saving grace "does not remain outside or above or beside nature but rather... wholly renews it.”19 Theologian Geerhardus Vos, following Bavinck, sees the kingdom of God operating in the world in two ways: first, within the church as it
 ministers in Word and sacrament, and second, when Christians live lives in society to God's glory. Vos writes, “There is a sphere of science, a sphere of art, a sphere of the family and of the state, a sphere of commerce and industry. Whenever one of these spheres comes under the controlling influence
 of the principle of the divine supremacy and glory, and this outwardly reveals itself, there we can truly say that the kingdom of God has become manifest.”20  
-2. Even more than the other models we will examine shortly, Transformationists celebrate and assign high value to Christians who excel in their work and enter spheres of influence within business, the media, government and politics, the academy, and the arts.21 This is due, I think,
+**2.** Even more than the other models we will examine shortly, Transformationists celebrate and assign high value to Christians who excel in their work and enter spheres of influence within business, the media, government and politics, the academy, and the arts.21 This is due, I think,
 to the fact that Transformationists truly believe secular vocations are an authentic way of bearing witness to Christ's kingdom. In addition, those who embrace this model are more likely to see the importance of human institutions for shaping culture and therefore stress the importance of
 Christians living and working in them.22  
-3. All those in this category believe that the main problem with society is a secularism that has disingenuously demanded a “naked public square.” In the name of tolerance and neutrality, secularist elites have imposed a particular worldview on society, forbidding believers from striving
+**3.** All those in this category believe that the main problem with society is a secularism that has disingenuously demanded a “naked public square.” In the name of tolerance and neutrality, secularist elites have imposed a particular worldview on society, forbidding believers from striving
 to see their beliefs and values reflected in culture. The assumption behind this is that Christians have been passive or that they have fallen into “dualism” — keeping their faith and beliefs strictly private and not letting them influence and change the way they live in public life. As I will show later,
 I believe this is largely a correct assessment and an important plank in the development of a faithfully biblical approach to culture.
 
@@ -352,97 +352,121 @@ In addition to the common or earthly kingdom, there is the "redemptive kingdom" 
 but through the special revelation of God's Word. They are nurtured within the church by means of preaching and the sacraments. In this view, building up the church-evangelism, discipleship, Christian community-is the only truly redemptive "kingdom work."
 
 This twofold framework for the nature of God's rule is the animating principle of this model. Two Kingdoms advocates believe the main problem today is the confusion of these two kingdoms, whether by the liberal church striving for relevance or by newer conservatives trying to
-transform culture. From this conviction flow the following features of the Two Kingdoms model for relating Christ to culture.
-1. Two Kingdoms proponents, unlike those in the Counterculturalist model (or those who take the pietistic stance), place a high value on Christians pursuing their work in "secular" vocations. We must not think we can only serve God within the church. All work is a way to serve God
+transform culture. From this conviction flow the following features of the Two Kingdoms model for relating Christ to culture.  
+**1.** Two Kingdoms proponents, unlike those in the Counterculturalist model (or those who take the pietistic stance), place a high value on Christians pursuing their work in "secular" vocations. We must not think we can only serve God within the church. All work is a way to serve God
 and our neighbor.
-LUTHER ON WORK AS A CALLING FROM GOD
-Martin Luther was particularly helpful in his emphasis that all secular work is a calling from God. In his exposition of Psalm 147, Luther teaches that, while God can feed us directly, he feeds us through the work of others, so that the farmer, the milkmaid, and the grocer
+
+> **LUTHER ON WORK AS A CALLING FROM GOD**
+>
+> Martin Luther was particularly helpful in his emphasis that all secular work is a calling from God. In his exposition of Psalm 147, Luther teaches that, while God can feed us directly, he feeds us through the work of others, so that the farmer, the milkmaid, and the grocer
 are all doing God's work. When Luther comments on verse 13 ("he strengthens the bars of your gates"), he argues that, while God could protect our cities directly, instead he guards us with laws from good legislators and lawyers, with good order from wise rulers, with
 security through skillful police and soldiers. Luther concludes, "These are the masks of God, behind which he wants to remain concealed and do all things."76 In other words, all work, even the most menial, is the way in which God does his work in the world, and therefore
 all work is a calling from God.
-2. The Two Kingdoms model differs significantly from the Transformationists in their counsel on how Christians should do their work in the world. While Christian work in the common kingdom has dignity and usefulness, Two Kingdoms advocates tell believers they are not to
+
+**2.** The Two Kingdoms model differs significantly from the Transformationists in their counsel on how Christians should do their work in the world. While Christian work in the common kingdom has dignity and usefulness, Two Kingdoms advocates tell believers they are not to
 look for "uniquely 'Christian' ways of doing ordinary tasks."77 A word that is conspicuously absent from Two Kingdoms discourse on secular work is the term worldview. As co-citizens in the common kingdom, Christians do not have unique ideas of the common good and human flourishing
 that non-Christians cannot intuitively know. There is no distinctively Christian civilization. Thus, according to the Two Kingdoms model, believers are not creating distinctively Christian culture.78 They should not try to change culture so that it reflects Christian beliefs, nor should they think
 they are to "heal" creation. God's ruling power in the common kingdom is only to restrain evil — not to improve the culture by diminishing the effects of sin on human society. All that occurs in this realm is "temporal, provisional, and bound to pass away”. — “not matters of any ultimate or spiritual importance."79 When Christians are doing their work in the world, they are serving God and their neighbors, but they are not restoring creation or moving culture into a more Christian direction. Here Two Kingdoms thinkers join with the Counterculturalists in their criticism of
 Transformationism. The job of the church, they say, is not to change society but to simply be the church. There is no warrant for us to seek to create a Christian society.
-3. Two Kingdoms proponents part ways not only with Transformationists but also with Counterculturalists over their view of human government and the general world of commerce. While Transformationists see the secular state as a huge problem, and Counterculturalists see it
+
+**3.** Two Kingdoms proponents part ways not only with Transformationists but also with Counterculturalists over their view of human government and the general world of commerce. While Transformationists see the secular state as a huge problem, and Counterculturalists see it
 as a seat of violence and empire, the Two Kingdoms model sees a secular, neutral state as exactly what God wants, not a state coercively imposing religious values.80 The Two Kingdoms view generally says the same thing about commerce and capital markets. These are not demonic (as the
 Counterculturalist says) or so fallen that they need to be redeemed (as the Transformationist says). They are spaces of common grace where Christians should pursue their callings with skillfulness and joy. Christians should not feel guilt and "unbiblical pressure" to establish Christian theories
 or practices of business or government.81
-4. As a direct implication of everything we have said, Two Kingdoms advocates are very guarded about how much improvement, if any, Christians can expect to see in culture. They counsel us to avoid not only triumphalism but also great optimism. The Two Kingdoms model "demands
+
+**4.** As a direct implication of everything we have said, Two Kingdoms advocates are very guarded about how much improvement, if any, Christians can expect to see in culture. They counsel us to avoid not only triumphalism but also great optimism. The Two Kingdoms model "demands
 limited and sober expectations... The [common] kingdom, regulated by natural law, is severely limited in what it can attain."82 As we have noted, God's common kingdom is predominantly a force for restraining disorder, not for building a new order. As VanDrunen argues, everything here on earth
 except for our souls and resurrection bodies is going to be destroyed. Nothing we do in the common kingdom, therefore, is of lasting importance. In the end, we should not expect too much out of this life — we should set all our hopes fully on the future hope of Christ's final salvation and return.
+
 Is there a spectrum within this model, as we have seen to one degree or another in the others? Yes, there is. First, there is a distinction between the traditional Lutheran understanding of the Two Kingdoms and the recent version being promoted by conservative Reformed authors. Luther
 did not see the Two Kingdoms as the realm of the world and the church, but as the realm of the physical and the spiritual. For Luther, then, the visible, institutional church was actually part of the “temporal” kingdom in which even church government was ordered with a form of law, while the
 invisible church was the mystical communion of saints who live together under grace and in freedom.83 Luther—and Lutheranism - did not believe, then, in as radical a disjunction between church and state as is set forth by contemporary Reformed Two Kingdoms advocates. Luther and Calvin
 called on kings and nobles to make Protestant reform the law of their lands.
+
 There is also something of a spectrum within the Reformed Two Kingdoms camp. As we have seen, proponents of the Two Kingdoms view by and large resist the Transformationist idea that our worldview makes believers' work in the world profoundly different from that of nonbelievers.
 Two Kingdoms authors say that by means of common grace, not the Bible, God lets believers and nonbelievers know what they need to know to fulfill vocations in the world. Typical of this perspective is T. David Gordon, writing in Modern Reformation, where he strenuously argues that Christians
 out in the world do not do their work differently than nonbelievers do.84 In his writings, Gordon insists that Christians do not labor in a "distinctively Christian" manner, nor do they seek to change the world or society.85 David VanDrunen chimes in with this observation: "Generally speaking,
 believers are not to seek an objectively unique Christian way of pursuing cultural activities."86
+
 However, Michael Horton, a prominent Two Kingdoms theologian and an editor of Modern Reformation, has taught that Christians should "pursue their vocation in a 'distinctively Christian' way.”87 This is a real difference, based perhaps on somewhat different views of the power of
 common grace or the purpose of Scripture, and yet with regard to Christian worldview, both thinkers are much more like each other than they are like Transformationists.88 While Horton studiously avoids the term worldview, he has written that the form of Christians' work in the world is distinct
-from that of non-Christians, and that, while the institutional church should not be aiming to change the world, individual believers should be "salt" and should seek to reform society. He writes the following:
-The biblical drama, doctrines, and doxology yield a discipleship in the world that does indeed transform. It never transforms the kingdoms of this age into the kingdom of Christ (for that we await the King's bodily return); however, it does touch the lives of ordinary people every day through
-ordinary relationships. Not everyone is a William Wilberforce, but we can be glad that he was shaped by the faithful ministry of the Anglican Calvinist John Newton and committed his life to the extirpation of the slave trade.89
-THE CREATION MANDATE
-Two Kingdoms authors part ways with neo-Calvinists over the "creation mandate" of Genesis 1 and 2. Neo-Calvinists see God as giving Adam (and therefore all human beings) a mandate to create culture, to do work and develop the creation (see Gen 1:26-28; 2:15). Yet
+from that of non-Christians, and that, while the institutional church should not be aiming to change the world, individual believers should be "salt" and should seek to reform society. He writes the following:  
+&nbsp;&nbsp;_The biblical drama, doctrines, and doxology yield a discipleship in the world that does indeed transform. It never transforms the kingdoms of this age into the kingdom of Christ (for that we await the King's bodily return); however, it does touch the lives of ordinary people every day through
+ordinary relationships. Not everyone is a William Wilberforce, but we can be glad that he was shaped by the faithful ministry of the Anglican Calvinist John Newton and committed his life to the extirpation of the slave trade.89_
+
+> **THE CREATION MANDATE**
+>
+> Two Kingdoms authors part ways with neo-Calvinists over the "creation mandate" of Genesis 1 and 2. Neo-Calvinists see God as giving Adam (and therefore all human beings) a mandate to create culture, to do work and develop the creation (see Gen 1:26-28; 2:15). Yet
 Two Kingdoms authors insist that the work God gave to Adam—to guard and cultivate the garden - has been fulfilled by Christ, and therefore "Christian" cultural endeavors should not be understood as getting back to Adam's original task.
-NOT DISTINCTIVELY CHRISTIAN
-In the final chapter of Living in God's Two Kingdoms, "Education, Vocation, and Politics," David VanDrunen first says "there are many unique things about Christians' cultural activity," but then he explains that the main way they are distinct is "subjectively," that is, in their
+
+> **NOT DISTINCTIVELY CHRISTIAN**
+>
+> In the final chapter of Living in God's Two Kingdoms, "Education, Vocation, and Politics," David VanDrunen first says "there are many unique things about Christians' cultural activity," but then he explains that the main way they are distinct is "subjectively," that is, in their
 motivation to do things wholeheartedly for the Lord (pp. 167-68). When he asks if Christian work is "objectively" distinctive — that is, distinctive in its actual form or content, not just in motivation - he answers in the negative. He then reiterates what he has stated in
 the rest of his book—that the normative standards for cultural activity are not distinctively Christian; they are common grace norms available to all.
-Later, in the context of a discussion of education, VanDrunen bluntly states that "neither the church nor the family ... has competence to impart a comprehensively detailed world and life view." If the modifier "comprehensively detailed" is strong enough, it is unlikely
+>
+> Later, in the context of a discussion of education, VanDrunen bluntly states that "neither the church nor the family ... has competence to impart a comprehensively detailed world and life view." If the modifier "comprehensively detailed" is strong enough, it is unlikely
 that any neo-Calvinist would disagree with VanDrunen. No one who advocates a Transformationist perspective believes there is a New Testament version of the book of Leviticus that dictates the Christian way to eat and dress. But in the context, VanDrunen hints that
 when a school or family tries to teach children a worldview, they are usurping the place of the minister, who is to teach the Bible to the youth inside the church (pp. 177-78.)90
+
 As we have seen, this is different in content and in spirit from what many other Two Kingdoms advocates have written. It gives more weight to the concept of worldview (without using the word), to the idea that the culture is fallen and distorted by sin, and to the hope that cultural
 reform is desirable and possible.
-PROBLEMS WITH THE TWO KINGDOMS MODEL
-Several problems have been cited with the Two Kingdoms model.91
-1. The Two Kingdoms model gives more weight and credit to the function of common grace than the Bible does. Two Kingdoms authors insist that Christians do not need to bring their understanding of the Bible and the gospel to bear on public life in order to strengthen it, because
-society is and can be kept healthy through the light of natural revelation given by God to all people. While this rightly highlights what the Bible says about the existence of common grace, it does not do equal justice to the biblical teaching that human beings suppress the truth they have (Rom
-1:18-32) and therefore do not read natural revelation rightly. When John Calvin speaks of natural revelation in his Institutes, he strikes the balance perfectly. He writes the following:
 
-Let that admirable light of truth shining in [secular writers] teach us that the mind of man, though fallen and perverted from its wholeness, is nevertheless clothed and ornamented with God's excellent gifts. If we regard the Spirit of God as the sole fountain of truth, we shall neither reject the
+### PROBLEMS WITH THE TWO KINGDOMS MODEL
+Several problems have been cited with the Two Kingdoms model.91  
+
+**1. The Two Kingdoms model gives more weight and credit to the function of common grace than the Bible does.** Two Kingdoms authors insist that Christians do not need to bring their understanding of the Bible and the gospel to bear on public life in order to strengthen it, because
+society is and can be kept healthy through the light of natural revelation given by God to all people. While this rightly highlights what the Bible says about the existence of common grace, it does not do equal justice to the biblical teaching that human beings suppress the truth they have (Rom
+1:18-32) and therefore do not read natural revelation rightly. When John Calvin speaks of natural revelation in his Institutes, he strikes the balance perfectly. He writes the following:  
+&nbsp;&nbsp;_Let that admirable light of truth shining in [secular writers] teach us that the mind of man, though fallen and perverted from its wholeness, is nevertheless clothed and ornamented with God's excellent gifts. If we regard the Spirit of God as the sole fountain of truth, we shall neither reject the
 truth itself, nor despise it wherever it shall appear, unless we wish to dishonor the Spirit of God ... Those men whom Scripture (1 Cor 2:14) calls “natural men” were, indeed, sharp and penetrating in their investigation of inferior things. Let us, accordingly, learn by their example how many
-gifts the Lord left to human nature even after it was despoiled of its true good.92
+gifts the Lord left to human nature even after it was despoiled of its true good.92_
+
 And yet, just before this passage Calvin writes that while it is true that "in man's perverted and degenerate nature some sparks still gleam ... [the light is nonetheless] choked with dense ignorance, so that it cannot come forth effectively... [His] mind, because of its dullness... betrays how
 incapable it is of seeking and finding truth."93 Two Kingdoms advocates have often written as if natural law and common grace are enough to guide human beings — without the light of the Bible — to build a society that is peaceful and prosperous, one that fits human nature and destiny. But this
 seems to go beyond what the Bible teaches, namely, that human beings usually distort, suppress, and deny the natural revelation of God.
-2. Much of the social good that Two Kingdoms people attribute to natural revelation is really the fruit of the introduction of Christian teaching — of special revelation, if you will — into world cultures. For example, Nicholas Wolterstorff has argued that the very idea of human
+
+**2. Much of the social good that Two Kingdoms people attribute to natural revelation is really the fruit of the introduction of Christian teaching — of special revelation, if you will — into world cultures.** For example, Nicholas Wolterstorff has argued that the very idea of human
 rights came out of Christian teaching on the image of God. It did not develop, and perhaps could not have developed, out of other views of human nature.94 Now, for highly complex reasons, the idea of human rights has gone global. Samuel Moyn has recently argued that human rights have filled
 the enormous vacuum left by the collapse of revolutionary socialism, as well as most other credible frameworks for grounding moral values and justice.95 But we should still ask, "Where did the idea of human rights come from?" Since so many secular people support it, does this mean it is a
 product of natural revelation? No-it is the product of various factors. The world has been exposed to biblical teaching and has taken this insight of special revelation and given it a more universal, non-Christian meaning. But the basic ideas of inherent human dignity, the importance of forgiveness
 rather than vengeance, the importance of philanthropy and charity — all of these grew out of Christian civilization, for they were virtually absent in Western pagan and Eastern civilizations.96 They now seem to have become permanent fixtures of contemporary Western life, even though the
 original basis for them, the Christian faith, has been largely abandoned by the culture.
+
 Is it right, then, to strictly say that culture is ordered by natural revelation and hold that the Bible should not be brought to bear on public life? As Dan Strange observes, quoting Peter Leithart, the real condition in most Western societies is one of "middle grace"97— a complex interaction
 of concepts introduced from the Bible that get traction broadly for a host of other reasons, which we could eventually come to see as common grace.
+
 A famous example is the abolitionist movement, led by evangelical Christians such as William Wilberforce and others. Christian leaders of the movement were inspired by views of human nature taken from the special revelation of the Bible. And yet they would have never been successful
 in their endeavors unless many non-Christian people had found the call to abolish slavery resonating in their hearts and consciences as well - the product of common grace. The question is whether non-Christian religions and people could have originally produced the idea that slavery per se is
 wrong. Historically, this idea grew out of Christian reflection on the idea of the imago Dei.98 In other words, slavery could not have been abolished without common grace, but it would never have been abolished with only common grace.
-3. The Two Kingdoms model implies or teaches that it is possible for human life to be conducted on a religiously neutral basis. This model wants the state to be secular and neutral. It denies the need for a Christian perspective on law, government, economics, and art. But it can be
+
+**3. The Two Kingdoms model implies or teaches that it is possible for human life to be conducted on a religiously neutral basis.** This model wants the state to be secular and neutral. It denies the need for a Christian perspective on law, government, economics, and art. But it can be
 argued that the secular state is not only an undesirable goal. In the end, it is an impossibility. A secular state is really a myth- — a disingenuous product of the Enlightenment.99 As we observed in the chapters on contextualization, our practices are unavoidably grounded in fundamental beliefs
 about right and wrong, human nature and destiny, the meaning of life, what is wrong with human society, and what will fix it. All of these working assumptions are based on nonprovable faith assumptions about human nature and spiritual reality. Michael Sandel, who teaches a popular course
 on justice at Harvard University, states that all theories of justice are "inescapably judgmental." He goes on to observe that you cannot hold a position on financial bailouts, surrogate motherhood, same-sex marriage, affirmative action, or CEO pay without assuming some underlying beliefs about
 "the right way to value things." For example, when one person says women should have the right to choose an abortion while another says women shouldn't have that choice, each is valuing things differently — a valuation always based on moral beliefs that are not scientifically based. These
 implicit assumptions are acts of faith, and therefore there can ultimately be no neutral, secular state. All cultures and governments will be animated by certain of these acts of faith and not by others. 101
--
-BORROWED CAPITAL
-In his history classes, C. John Sommerville used to demonstrate to students how thoroughly Christianized they were, even those who were atheistic or antireligious. He would list the values of shame-and-honor cultures (like those of pagan northern Europe before the
+
+> **BORROWED CAPITAL**
+>
+> In his history classes, C. John Sommerville used to demonstrate to students how thoroughly Christianized they were, even those who were atheistic or antireligious. He would list the values of shame-and-honor cultures (like those of pagan northern Europe before the
 advent of Christian missionaries) and include values like pride, a strict ethic of revenge, the instilling of fear, the supreme importance of one's reputation and name, and loyalty to one's tribe. Then he would list corresponding Christian values, which had been hitherto
 unknown to the pagans of Europe - things like humility, forgiveness, peaceableness, and service to others, along with an equal respect for the dignity of all people made in God's image, 100 Many of Sommerville's most antireligious students were surprised to learn just
 how deeply they had been influenced by ways of thinking and living that had grown out of biblical ideas and been passed on to them through complex social and cultural processes.
 His point was that much of what is good and unique about Western civilization is actually "borrowed capital" from a Christian faith, even though the supernatural elements of the faith have been otherwise neglected of late in the public sphere.
+
 Sometimes Two Kingdoms advocates will ask advocates of the Transformationist model, "What is the Christian form of auto repair? How should we do dentistry from a Christian worldview?" The fact that Christians and non-Christian dentists fill cavities in the same way shows that
 indeed we do share common intuitions about life and our common humanity in the imago Dei. And Two Kingdoms advocates are correct that the Bible is not a comprehensive handbook for running a business or doing plumbing. We quoted Two Kingdoms theologian T. David Gordon in a footnote
 earlier in this chapter: "The Bible is sufficient to guide the human-as-covenanter” — that is, as a Christian living in the covenant community — “but not sufficient to guide the human-as-mechanic, the human-as-physician, the human-as-businessman, the human-as-parent [or spouse] ... or the
 human-as-legislator."102 Michael Horton has likewise written, "There is no difference between Christians and non-Christians with respect to their vocations ... If Christians as well as non-Christians participate in the common curse and common grace of this age in secular affairs, then there is no
 'Christian politics' or 'Christian art' or 'Christian literature,' any more than there is 'Christian plumbing." "103
+
 The critics' response is that the Bible doesn't give a comprehensive handbook for anything, not even for being the church or living a Christian life. Gordon is right to say that the Bible does not give us all we need to know to be good parents or spouses. It leaves many details up to us - but
 what it does tell us is profound and powerful and makes Christian marriages different from those based on other worldviews and philosophies of life. The Bible speaks to an enormous range of cultural, political, economic, and ethical issues that have a marked impact on every area of life. Historian
 John Sommerville argues that Western society's most pervasive ideas — such as the teachings that forgiveness and service are more admirable than saving face and revenge — have deeply biblical roots that are very different from the shame-and-honor cultures in the pre-Christian Western
 Hemisphere (see sidebar on "Borrowed Capital"). Theologian Michael Allen reminds us that "Christian faith has [necessarily] cultural implications."104 Many have argued that the very rise of modern science could have only occurred in a society in which the biblical view of a sole, all-powerful, and
 personal Creator was prevalent. 105 It seems naive to claim that Christian faith does not unavoidably shape culture in deep ways.
+
 The issue of slavery provides an interesting example of how Christianity changes culture. While Christians are usually criticized for having waited so long to abolish slavery, Miroslav Volf points out how even in the New Testament the gospel was sounding its death knell. Paul told
 Philemon, a Christian slave owner, to receive and treat his slave Onesimus as a "beloved brother” not only "in the Lord” but “in the flesh” (Phlm 16 ESV). New Testament scholar Douglas Moo explains that Paul used the phrase "in the flesh" to refer to "that aspect of human life that is bound by
 earthly oriented interests (cf. NJB, 'on the natural plane')."106 So Moo concludes that although Onesimus will technically remain Philemon's slave for the time being, “Paul is saying in effect, 'Your relationship with Onesimus will no longer be dictated by your legal relationship (master-slave) but
@@ -450,47 +474,59 @@ by your spiritual relationship (brothers).' "107 This is to so transform the use
 
 As we reflect on these examples, we see that while the New Testament may not give believers direct calls to transform society, the gospel faith of Christians clearly had immediate and far-reaching impact on social and economic relationships, and not only strictly within the church. Indeed,
 then, Christian faith touches on and affects all of life, and to claim otherwise is to be less than fully faithful to the biblical or historical record.
-4. The Two Kingdoms model produces a form of "social quietism.” According to the Two Kingdoms approach, Christians should not be overconfident of our ability to improve or move the world to a greater reflection of Christian values. This approach, while it neutralizes the
+
+**4. The Two Kingdoms model produces a form of "social quietism.”** According to the Two Kingdoms approach, Christians should not be overconfident of our ability to improve or move the world to a greater reflection of Christian values. This approach, while it neutralizes the
 triumphalism of some elements of the Christian Right, can lead to the opposite error. As Kevin DeYoung states, this model shows an "unwillingness to boldly call Christians to work for positive change in their communities and believe that change is possible."110 Michael Allen points to the
 uncomfortable case of the mid-nineteenth-century Southern Presbyterian Church in the United States and its doctrine of the "spirituality of the church.” In his 1859 "Address to All the Churches of Christ," J. H. Thornwell laid out a classic Two Kingdoms view, insisting that "the provinces of
 church and state are perfectly distinct, and the one has no right to usurp the jurisdiction of the other ... The state looks to the visible and the outward; the church is concerned for the invisible and inward ... The power of the church is exclusively spiritual."111 He goes on to defend the refusal of
 the Southern church to condemn slavery. Allen argues that the "spirituality of the church" teaching continued to affect Southern churches even into the civil rights era, where "many leaders and congregations objected to denominational support of social and political goals."112
-THE TWO KINGDOMS AND LUTHERAN THEOLOGY
-Lutheran theology has historically promoted the Two Kingdoms understanding of how to relate Christ to culture. D. A. Carson quotes Robert Benne, a Lutheran theologian who is critical of aspects of his own tradition:
-Were this version of Lutheran theology taken to its logical conclusion it would deprive the gospel of any intellectual content and the [civil] law of any moral content. The biblical narrative and theological reflection on it would not be given any epistemological
+
+> **THE TWO KINGDOMS AND LUTHERAN THEOLOGY**
+>
+> Lutheran theology has historically promoted the Two Kingdoms understanding of how to relate Christ to culture. D. A. Carson quotes Robert Benne, a Lutheran theologian who is critical of aspects of his own tradition:  
+&nbsp;&nbsp;Were this version of Lutheran theology taken to its logical conclusion it would deprive the gospel of any intellectual content and the [civil] law of any moral content. The biblical narrative and theological reflection on it would not be given any epistemological
 status to engage secular learning. It would champion a form of Lutheran quietism in the realm of education. Much as German Lutherans in the 1930s separated the two kingdoms (government under law separated from Christianity under the gospel) and
 allowed the Nazi movement to go unchecked by appeal to the intellectual and moral content of the Christian vision, so this approach would allow modern secular learning to go unchallenged by that vision. 109
-5. The Two Kingdoms view contributes to too great a hierarchy between clergy and laypeople. While many adherents of the Two Kingdoms model encourage Christians to excel in their vocations and see them as a way to serve God, they do not view such work as "kingdom work."113
+
+**5. The Two Kingdoms view contributes to too great a hierarchy between clergy and laypeople.** While many adherents of the Two Kingdoms model encourage Christians to excel in their vocations and see them as a way to serve God, they do not view such work as "kingdom work."113
 The Two Kingdoms churches will in the end, then, be less celebrative of Christians in secular vocations than will the Transformationists. Not only that, but often within the church itself, the Two Kingdoms emphasis on the ordained ministry of the Word and sacrament can lead to "an exaggerated
 distinction between laity and church officers (e.g., evangelism is the responsibility of elders and pastors not of the regular church members.)"114
-COMING TOGETHER ON CULTURE?
+
+## COMING TOGETHER ON CULTURE?
 In late 2011, I wrote a blog post titled Coming Together on Culture. I noted that despite the division over Christ and culture in the Christian church today, I perceived that a percentage of people in each camp were listening to the critiques and were incrementally (and almost secretly) making revisions
 that moved them closer toward the other camps and positions.
-In my blog post, I summarized the Transformationist and Two Kingdoms views, arguing that while each model had some imbalances, many were recognizing them and incorporating insights from various models:
-Transformationism is seen as too triumphalistic, coercive, naive about sin, and often self-righteous. It does not appreciate sufficiently God's common grace given to all people. It may not prepare Christians well to make common cause with nonbelievers for the common good, or to appreciate
+
+In my blog post, I summarized the Transformationist and Two Kingdoms views, arguing that while each model had some imbalances, many were recognizing them and incorporating insights from various models:  
+_Transformationism is seen as too triumphalistic, coercive, naive about sin, and often self-righteous. It does not appreciate sufficiently God's common grace given to all people. It may not prepare Christians well to make common cause with nonbelievers for the common good, or to appreciate
 the goodness of all work, even the most "menial” kind. It is criticized for putting too much emphasis on the intellect — on thinking out your philosophical worldview — and not enough on the piety of the heart and the reordering of our loves. It is critiqued for putting too much hope in and
-emphasis on Christians taking political power...
+emphasis on Christians taking political power...  
 The Two Kingdoms approach is seen as too pessimistic about the possibility of social change. Paradoxically, many holding this position are also too naive and optimistic about the role of common grace in the world. They argue that Christians can work beside nonbelievers on the basis
 of common moral intuitions given to all by natural revelation ... The Two Kingdoms approach gives too little weight to the fact that every culture is filled with idols, that sin distorts everything, that there can be no final neutrality, and that we need Scripture and the gospel, not just natural
-revelation, to guide us in our work in the world.115
+revelation, to guide us in our work in the world.115_
+
 The post generated some resistance. Michael Goheen, a noted author from the Kuyperian movement, countered that he and coauthor Craig Bartholomew (along with others), while solidly in the Transformationist camp, had "appropriated the work of Newbigin and would espouse a
 more missional Kuyperianism. That is, social engagement is not first of all to change society-that may happen but... the goal... is to witness to the lordship of Christ over all areas of public life and to love our neighbor as we struggle against dehumanizing idolatry."116 Meanwhile, Michael
 Horton, a prominent Two Kingdoms theologian, wrote a post in response to mine, similarly objecting to the depiction of the Two Kingdoms position. Although six years ago he had written, "There is no difference between Christians and non-Christians with respect to their vocations" and "there
 is no 'Christian politics' or 'Christian art' or 'Christian literature,' any more than there is 'Christian plumbing,' "117 he now wrote, "Nothing in the 2K [Two Kingdoms] view entails that 'Christians do not, then, pursue their vocation in a "distinctively Christian way" or 'that neither the church nor
 individual Christians should be in the business of changing the world or society,' "and he added that Christian-led social reforms were good things. 118
+
 These two writers, however, despite their valid concerns about caricature, provide evidence that indeed there may be a "coming together on culture" among Christians. Mike Goheen's emphasis, still clearly within a Kuyperian model, has incorporated insights and critiques from other
 sources. And while many Two Kingdoms proponents indeed deny that (apart from their inner motivations) Christians do their work in a distinctive way or that they should be involved in trying to change society, Michael Horton's comments show an admirable facility to learn from the strengths
 and the critiques of other views. In the hope that I can contribute to this growing convergence, I turn now to some admirable examples of balance with regard to this issue, followed by an analysis of how the four models can relate more appreciatively to the insights of the others.
-QUESTIONS FOR DISCUSSION AND REFLECTION
-1. This chapter summarizes four models of cultural response:
-. Transformationist model
-• Relevance model
-. Counterculturalist model
-• Two Kingdoms model
 
-Which of the four models most closely represents your own? Which models were you unfamiliar with? Which critiques did you particularly resonate with, and which (if any) did you find yourself objecting to?
-2. Keller writes, "The fact that models often fail as descriptors is instructive in itself." Models are often inadequate, particularly when we are looking at the sharpest and clearest version of a position.
-Yet their very inadequacy can help us by revealing the limitations of a particular view and encouraging us to avoid extremes. With this in mind, how would you summarize the greatest strength of each model? What do you believe is the biggest problem
+> **QUESTIONS FOR DISCUSSION AND REFLECTION**
+>
+> **1.** This chapter summarizes four models of cultural response:
+> - Transformationist model
+> - Relevance model
+> - Counterculturalist model
+> - Two Kingdoms model
+> Which of the four models most closely represents your own? Which models were you unfamiliar with? Which critiques did you particularly resonate with, and which (if any) did you find yourself objecting to?
+> 
+> **2.** Keller writes, "The fact that models often fail as descriptors is instructive in itself." Models are often inadequate, particularly when we are looking at the sharpest and clearest version of a position.
+>
+> Yet their very inadequacy can help us by revealing the limitations of a particular view and encouraging us to avoid extremes. With this in mind, how would you summarize the greatest strength of each model? What do you believe is the biggest problem
 or weakness with each model?
-3. Take some time to identify the various streams of theology that have shaped your thinking about the gospel and culture, noting the authors, mentors, traditions, articles, conferences, personal experiences, and biases that have influenced you. Has a particular stream
+>
+> **3.** Take some time to identify the various streams of theology that have shaped your thinking about the gospel and culture, noting the authors, mentors, traditions, articles, conferences, personal experiences, and biases that have influenced you. Has a particular stream
 of thought dominated your thinking about the church and culture, or have you been influenced by multiple streams? Which ones? Who were the key voices that shaped your practice into what it is today?

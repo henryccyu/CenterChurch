@@ -24,8 +24,8 @@
 - [14. THE GOSPEL FOR THE CITY](chapter14.html)  
 
 ### PART 5: CULTURAL ENGAGEMENT
-- [Chapter 15](chapter15.html)  
-- [Chapter 16](chapter16.html)  
+- [15 THE CULTURAL CRISIS OF THE CHURCH](chapter15.html)  
+- [16 THE CULTURAL RESPONSES OF THE CHURCH](chapter16.html)  
 - [Chapter 17](chapter17.html)  
 - [Chapter 18](chapter18.html)
 

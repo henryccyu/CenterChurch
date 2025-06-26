@@ -147,15 +147,16 @@ some practical exhortations.
 1. Avoid arrogance. It is extremely easy to believe that the culture model that has helped you the most is the best one for everyone. It is especially easy to feel superior if you compare the strengths of your favorite model with the weaknesses of the others. Don't do that. Do not think that
 your particular tradition is "the new thing God is doing" and all the others are fading away. A balanced assessment shows that none of these particular traditions are dying. Each has serious weaknesses but also great strengths.
 
-## KEEPING THE MISSION CLEAR
-Michael Allen points out that the Westminster Confession (31.4) assumes what Kuyper called “sphere sovereignty” when it states, “Synods and councils are to handle, or conclude nothing, but that which is ecclesiastical: and are not to intermeddle with civil affairs which
+> ## KEEPING THE MISSION CLEAR
+> Michael Allen points out that the Westminster Confession (31.4) assumes what Kuyper called “sphere sovereignty” when it states, “Synods and councils are to handle, or conclude nothing, but that which is ecclesiastical: and are not to intermeddle with civil affairs which
 concern the commonwealth, unless by way of humble petition in cases extraordinary." Allen notes the pragmatic balance. The church as institution is to stay out of direct political engagement. It holds out the possibility there may be civil issues that are "extraordinary"
 — as when a great injustice or wrong is being done about which the Bible speaks directly. But even in extraordinary cases it is still called “intermeddling.” By implication, Allen says, “Pastors and local church leadership would likely speak to societal and political issues
-only with rarity and great care."30
+only with rarity and great care."30  
+
 2. Avoid blame. If you have grown by adopting another culture model, you may feel angry or betrayed by the former one. You may have had good or bad personal experiences at the hands of cultural elites, which may have influenced you unduly. You may blame a certain model for all the
-troubles of the church because rabid proponents hurt the last congregation of which you were a member. Forgive, and look for places where you can repent. Try to remove the personal histories as you think about culture. Look at the Bible, the cultural moment, and your gifts.
+troubles of the church because rabid proponents hurt the last congregation of which you were a member. Forgive, and look for places where you can repent. Try to remove the personal histories as you think about culture. Look at the Bible, the cultural moment, and your gifts.  
 3. Avoid frustration. If you are in a church or denomination that does not share the cultural model you feel is best, it can have a radicalizing effect on you. Opposition can push you into more extreme forms of your position. Don't let conflict make you too rigid a proponent for your
-approach.
+approach.  
 4. Avoid naïveté. Some people say "a plague on all your houses" and insist that one church transcend all models or incorporate them all. Because every church and Christian has history, a temperament, and a unique take on various theological issues, every church and Christian will be
 situated in some tradition and model. It is inescapable. The gospel should give us the humility both to appreciate other models and to acknowledge that we have a model of our own. So enjoy the strengths of your position, admit the weaknesses, and borrow like crazy from the strengths of the
 others.

@@ -1,21 +1,23 @@
-chapter 18
-CULTURAL ENGAGEMENT THROUGH BLENDED INSIGHTS
+# Chapter 18 CULTURAL ENGAGEMENT THROUGH BLENDED INSIGHTS
+
 As we have seen, the cultural situation in the West has forced every minister to adopt some model of relating Christ to culture. Many ministers, I believe, are largely unaware of the presuppositions, historical roots, or weaknesses of their model, or of the biblical merits of other models. Yet if you've
 come this far, I hope no one can say this of you. Nevertheless, you are still operating from within your own model. You have a personal history, temperament, church tradition, and ministry context that leads you to emphasize certain ways of relating to culture. In this chapter, I will offer practical
 counsel on how to operate faithfully and skillfully within the model you inhabit.
-SEEK THE CENTER
+
+## SEEK THE CENTER
+
 The first principle is that proponents of each model should do their best to discern and incorporate the insights of the other models. Referring again to the illustration on page 231, each of us should "seek the center" — i.e., to seek to face and operate close to the illustration's center. The main way to do
 this is to appreciate the seminal insights of each model, so we'll summarize them again here.
 The Relevants are especially inspired by the coming shalom and restoration of all things. They emphasize the importance of a church that exists for others, doing sacrificial service for the common good. If the Christian faith is to have any impact on culture, the time must come when it is
 widely known that secularism tends to make people selfish, while general religion and traditional morality make people tribal (concerned mainly for their own), but the Christian gospel turns people away from both their selfishness and their self-righteousness to serve others in the way that Jesus
 gave himself for his enemies. Just as Israel was told to "seek the peace and prosperity" of the great pagan city of Babylon (Jer 29:7), so Christians should be well-known as people who seek to serve people — whether they embrace Christianity or not.¹
--
+
 The Transformationists have a keen sense of the effects of the fall on human culture; their main focus is on thinking and living in all areas of life in a distinctively Christian manner. Most of our churches' discipleship models operate by drawing laypeople out of the world and into the life
 of the church - which can be unhelpful. D. Michael Lindsay's Faith in the Halls of Power shows that Christians who are deeply involved in cultural centers and institutions feel largely unappreciated by and alienated from the church.2 Few churches actively support people to follow Christ in both
 their private and public lives, but the Transformationists are filling this gap.
 The Counterculturalists point to God's redemptive strategy of calling out a distinct people for himself; their lead theme calls the church to be a contrast community and sign of the future kingdom, if we are to have any witness to the world. Those who advocate this model rightly argue that
 Christians who work as individuals dispersed within cultural institutions cannot give the world a Christian vision of human flourishing in the same way that a community can. The church can provide the best setting for shaping a Christian's worldview for work in the world.3
--
+
 Those holding the Two Kingdoms view revel in the goodness of creation; their basic idea centers on the dignity of secular vocation and the importance of doing this work in a way marked by an excellence that all can see.4 The distinctiveness of Christian work will have little impact, directly
 or indirectly, unless it is accompanied by excellence. Martin Luther is reported to have been asked, "How can I be a Christian shoemaker?" and to have answered, “Make excellent shoes for an excellent price" — in other words, be the best shoemaker you can be. The very act of honest work, even in
 its simplest forms, even when it is difficult to do out of a discernibly Christian worldview, is a wondrous good in and of itself. And therefore farming, police work, and other vocations in which we serve the common good are vehicles for God's love and care to the degree that they are done very well

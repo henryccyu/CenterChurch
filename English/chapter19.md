@@ -152,7 +152,7 @@ culture of modernity and thus had no real alternative to offer. The church must 
 answers sounded many of the same themes as Newbigin and Bosch: the church as a contrast community, contextualization of the message, concern not only for church growth but also for
 justice. The book's theological commitments were firmly based on the concept of the mission as participation in the purpose of the triune God to redeem creation.22
 
-> **WHY DID WE LOSE CHRISTENDOM?**
+> **WHY DID WE LOSE CHRISTENDOM?**  
 > What caused Christianity to lose so much influence in the West, especially after World War II? Lesslie Newbigin understands historical patterns as being caused by ideas and
 intellectual trends working their way out through a society's institutions. He blames the outworking of the eighteenth-century Enlightenment — promoting the sufficiency
 of individual human reason with no need for faith in God-for a great deal of the shift.
@@ -208,7 +208,7 @@ culture through vocations are correct. In their own works, they seek to flesh ou
 support the idea of the church as far more incarnationally involved in the life of its community, and they believe firmly in the importance of contextualization and cultural engagement. They
 do not, however, believe the others have taken the implications of the missio Dei far enough. They believe missio Dei calls us to a careful reworking of both our theology and practice.
 
-> **SELF AND THE FULFILLMENT OF ITS NEEDS**
+> **SELF AND THE FULFILLMENT OF ITS NEEDS**  
 > Alan Roxburgh and Scott Boren have more to say about the impact of individualism:
 >
 > _When we attend to the way people talk about the gospel, it does not take long to discover just how much the focus lies on meeting personal needs. During testimony
@@ -277,7 +277,7 @@ In other words, our mission cannot go forward without Christians being involved 
 part of the balance Newbigin struck. While many in the liberal church redefine evangelism as seeking a more just society and many conservative churches see Christians' work in the world as
 strictly proclamation and conversion, most missional thinkers agree that the witness of Christians must be in both word and deed.
 
-> **WHAT IS A "MISSIONAL" SMALL GROUP?**
+> **WHAT IS A "MISSIONAL" SMALL GROUP?**  
 > A missional mind-set can and should pervade every area of the church. For example, let's consider what a missional small group could look like. It is more than just a group of
 people involved in a specific evangelism program (although that is a good thing). Rather, its members love the city and talk positively about it; they speak in language that is
 not filled with pious tribal or technical terms and phrases, nor do they use disdainful or combative language. In their Bible study, they apply the gospel to the core concerns

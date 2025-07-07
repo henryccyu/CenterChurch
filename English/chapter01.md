@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/a61d6e95-1f3d-4bf2-986f-20fadc9e15d4)# Chapter 1 THE GOSPEL IS NOT EVERYTHING
+# Chapter 1 THE GOSPEL IS NOT EVERYTHING
 What do we mean by "the gospel"? Answering this question is a bit more complex than we often assume. Not everything the Bible teaches can be considered "the gospel" (although it can be
 argued that all biblical doctrine is necessary background for understanding the gospel). The gospel is a message about how we have been rescued from peril. The very word gospel has as its
 background a news report about some life-altering event that has already happened.1
@@ -117,3 +117,159 @@ only be expressed through words. Faith cannot come without hearing. This is why 
 There are two basic ways to answer the question "What is the gospel?" One is to offer the biblical good news of how you can get right with God. This is to understand the question to mean,
 "What must I do to be saved?" The second is to offer the biblical good news of what God will fully accomplish in history through the salvation of Jesus. This is to understand the question as
 "What hope is there for the world?"
+
+If we conceive the question in the first, more individualistic way, we explain how a sinful human being can be reconciled to a holy God and how his or her life can be changed as a result.
+It is a message about individuals. The answer can be outlined: Who God is, what sin is, who Christ is and what he did, and what faith is. These are basically propositions. If we conceive of the
+question in the second way, to ask all that God is going to accomplish in history, we explain where the world came from, what went wrong with it, and what must happen for it to be mended.
+This is a message about the world. The answer can be outlined: creation, fall, redemption, and restoration. These are chapters in a plotline, a story.
+
+As we will see in the next chapter, there is no single way to present the biblical gospel. Yet I urge you to try to be as thoughtful as possible in your gospel presentations. The danger in
+answering only the first question ("What must I do to be saved?") without the second ("What hope is there for the world?") is that, standing alone, the first can play into the Western idea that
+religion exists to provide spiritual goods that meet individual spiritual needs for freedom from guilt and bondage. It does not speak much about the goodness of the original creation or of God's
+concern for the material world, and so this conception may set up the listener to see Christianity as sheer escape from the world. But the danger in conceiving the gospel too strictly as a story
+line of the renewal of the world is even greater. It tells listeners about God's program to save the world, but it does not tell them how to actually get right with God and become part of that
+program. In fact, I'll say that without the first message, the second message is not the gospel. J. I. Packer writes these words:
+> In recent years, great strides in biblical theology and contemporary canonical exegesis have brought new precision to our grasp of the Bible's overall story of how God's plan to bless Israel, and
+through Israel the world, came to its climax in and through Christ. But I do not see how it can be denied that each New Testament book, whatever other job it may be doing, has in view, one
+way or another, Luther's primary question: how may a weak, perverse, and guilty sinner find a gracious God? Nor can it be denied that real Christianity only really starts when that discovery
+is made. And to the extent that modern developments, by filling our horizon with the great metanarrative, distract us from pursuing Luther's question in personal terms, they hinder as well
+as help in our appreciation of the gospel.11
+
+Still, the Bible's grand narrative of cosmic redemption is critical background to help an individual get right with God. One way to proceed is to interleave the two answers to the "What
+is the gospel?" question so that gospel truths are laid into a story with chapters rather than just presented as a set of propositions. The narrative approach poses the questions, and the
+propositional approach supplies the answers.
+
+How would we relate the gospel to someone in this way? What follows is a "conversational pathway" for presenting the gospel to someone as the chapters in a story. In the Bible, the
+term gospel is the declaration of what Jesus Christ has done to save us. In light of the biblical usage, then, we should observe that chapters 1 (God and Creation), 2 (Fall and Sin), and 4 (Faith)
+are not, strictly speaking, "the gospel." They are prologue and epilogue. Simon Gathercole argues that both Paul and the Gospel writers considered the good news to have three basic elements:
+the identity of Jesus as Son of God and Messiah, the death of Jesus for sin and justification, and the establishment of the reign of God and the new creation. 12 The gospel, then, is packed into
+chapter 3, with its three headings-incarnation, substitution, and restoration. Chapter 1 on God and chapter 2 on sin constitute absolutely critical background information for understanding
+the meaning of the person and work of Jesus, and chapter 4 helps us understand how we must respond to Jesus' salvation. Nevertheless, it is reasonable and natural to refer to the entire set of
+four chapters as "the gospel."
+
+### WHERE DID WE COME FROM?
+Answer: God. There is one God. He is infinite in power, goodness, and holiness and yet also personal and loving, a God who speaks to us in the Bible. The world is not an accident, but the creation
+of the one God (Genesis 1). God created all things, but why did he do that? Why did he create the world and us? The answer is what makes the Christian understanding of God profound and
+unique. While there is only one God, within God's being there are three persons — Father, Son, and Holy Spirit —who are all equally God and who have loved, adored, served, and enjoyed one
+another from all eternity. If God were unipersonal, then he would have not known love until he created other beings. In that case, love and community would not have been essential to his
+character; it would have emerged later. But God is triune, and therefore love, friendship, and community are intrinsic to him and at the heart of all reality. So a triune God created us (John 1:1
+-4), but he would not have created us to get the joy of mutual love and service, because he already had that. Rather, he created us to share in his love and service. As we know from John 17:20-
+24, the persons of the Trinity love and serve one another — they are “other-oriented.”13 And thus God created us to live in the same way. In order to share the joy and love that God knew within
+himself, he created a good world that he cares for, a world full of human beings who were called to worship, know, and serve him, not themselves.14
+
+### WHY DID THINGS GO SO WRONG?
+Answer: Sin. God created us to adore and serve him and to love others. By living this way, we would have been completely happy and enjoyed a perfect world. But instead, the whole human
+race turned away from God, rebelling against his authority. Instead of living for God and our neighbors, we live lives of self-centeredness. Because our relationship with God has been broken,
+all other relationships - with other human beings, with our very selves, and with the created world — are also ruptured. The result is spiritual, psychological, social, and physical decay and
+breakdown. "Things fall apart; the center cannot hold. Mere anarchy is loosed upon the world"15 — the world now lies under the power of sin.
+
+Sin reaps two terrible consequences. One consequence is spiritual bondage (Rom 6:15–18). We may believe in God or we may not believe, but either way, we never make him our greatest
+hope, good, or love. We try to maintain control of our lives by living for other things—for money, career, family, fame, romance, sex, power, comfort, social and political causes, or something
+else. But the result is always a loss of control, a form of slavery. Everyone has to live for something, and if that something is not God, then we are driven by that thing we live for- by overwork
+to achieve it, by inordinate fear if it is threatened, deep anger if it is being blocked, and inconsolable despair if it is lost. So the novelist David Foster Wallace, not long before his suicide, spoke
+these words to the 2005 graduating class at Kenyon College:
+> Everybody worships. The only choice we get is what to worship. And the compelling reason for maybe choosing some sort of god or spiritual-type thing to worship... is that pretty much
+anything else you worship will eat you alive. If you worship money and things, if they are where you tap real meaning in life, then you will never have enough, never feel you have enough...
+Worship your body and beauty and sexual allure and you will always feel ugly. And when time and age start showing, you will die a million deaths before they finally grieve you... Worship
+power, you will end up feeling weak and afraid, and you will need ever more power over others to numb you to your own fear. Worship your intellect, being seen as smart, you will end up
+feeling stupid, a fraud, always on the verge of being found out. But the insidious thing about these forms of worship is... they're unconscious. They are default settings. 16
+
+The second basic consequence of sin is condemnation (Rom 6:23). We are not just suffering because of sin; we are guilty because of sin. Often we say, "Well, I'm not very religious, but
+I'm a good person- and that is what is most important." But is it? Imagine a woman—a poor widow -with an only son. She teaches him how she wants him to live - to always tell the
+truth, to work hard, and to help the poor. She makes very little money, but with her meager savings she is able to put him through college. Imagine that when he graduates, he hardly ever
+speaks to her again. He occasionally sends a Christmas card, but he doesn't visit her; he won't answer her phone calls or letters; he doesn't speak to her. But he lives just like she taught him -
+honestly, industriously, and charitably. Would we say this was acceptable? Of course not! Wouldn't we say that by living a "good life" but neglecting a relationship with the one to whom he
+owed everything he was doing something condemnable? In the same way, if God created us and we owe him everything and we do not live for him but we "live a good life," it is not enough.
+We all owe a debt that must be paid.
+
+### WHAT WILL PUT THINGS RIGHT?
+Answer: Christ. First, Jesus Christ puts things right through his incarnation. C. S. Lewis wrote that if there is a God, we certainly don't relate to him as people on the first floor of a building relate
+to people on the second floor. We relate to him the way Hamlet relates to Shakespeare. We (characters) might be able to know quite a lot about the playwright, but only to the degree that the
+author chooses to put information about himself in the play.17
+
+In the Christian view, however, we believe that God did even more than simply give us information. Many fans of Dorothy Sayers's detective stories and mystery novels point out that
+Sayers was one of the first women to attend Oxford University. The main character in her stories — Lord Peter Wimsey—is an aristocratic sleuth and a single man. At one point in the novels,
+though, a new character appears, Harriet Vane. She is described as one of the first women who graduated from Oxford — and as a writer of mystery novels. Eventually she and Peter fall in love
+and marry. Who was she? Many believe Sayers looked into the world she had created, fell in love with her lonely hero, and wrote herself into the story to save him. Very touching! But that is not
+nearly as moving or amazing as the reality of the incarnation (John 1:14). God, as it were, looked into the world he had made and saw our lostness and had pity on his people. And so he wrote
+himself into human history as its main character (John 3:16). The second person in the Trinity, the Son of God, came into the world as a man, Jesus Christ.
+
+The second way Jesus puts things right is through substitution. Because of the guilt and condemnation on us, a just God can't simply shrug off our sins. Being sorry is not enough. We
+would never allow an earthly judge to let a wrongdoer off, just because he was contrite — how much less should we expect a perfect heavenly Judge to do so? And even when we forgive personal
+wrongs against us, we cannot simply forgive without cost. If someone harms us and takes money or happiness or reputation from us, we can either make them pay us back or forgive them — which means we absorb the cost ourselves without remuneration. Jesus Christ lived a perfect life — the only human being to ever do so (Heb 4:15). At the end of his life, he deserved blessing
+and acceptance; at the end of our lives, because every one of us lives in sin, we deserve rejection and condemnation (Rom 3:9-10). Yet when the time had fully come, Jesus received in our place,
+on the cross, the rejection and condemnation we deserve (1 Pet 3:18), so that, when we believe in him, we can receive the blessing and acceptance he deserves (2 Cor 5:21).
+
+There is no more moving thought than that of someone giving his life to save another. In Charles Dickens's A Tale of Two Cities, two men - Charles Darnay and Sydney Carton - both
+love the same woman, Lucie Manette, but Lucie chooses to marry Charles. Later, during the French Revolution, Charles is thrown in prison and awaits execution on the guillotine. Sydney visits
+Charles in prison, drugs him, and has him carried out. When a young seamstress (also on death row) realizes that Sydney is taking Charles's place, she is amazed and asks him to hold her hand
+for strength. She is deeply moved by his substitutionary sacrifice — and it wasn't even for her! When we realize that Jesus did the very same thing for us, it changes everything - the way we
+regard God, ourselves, and the world.
+
+The third way Jesus will put things right is through the eventual restoration of all that has gone wrong with the world. The first time Jesus came from heaven to earth, he came in
+weakness to suffer for our sins. But the second time he comes, he will judge the world, putting a final end to all evil, suffering, decay, and death (Rom 8:19-21; 2 Pet 3:13). This means that
+Christ's salvation does not merely save our souls so we can escape the pain of the curse on the physical world. Rather, the final goal is the renewal and restoration of the material world, and the
+redemption of both our souls and our bodies. Vinoth Ramachandra notes how unique this view is among the religions of the world:
+> So our salvation lies not in an escape from this world but in the transformation of this world... You will not find hope for the world in any religious systems or philosophies of humankind.
+The biblical vision is unique. That is why when some say that there is salvation in other faiths I ask them, "What salvation are you talking about?" No faith holds out a promise of eternal
+salvation for the world the way the cross and resurrection of Jesus do.18
+
+### HOW CAN I BE PUT RIGHT?
+Answer: Faith. Jesus died for our sins and rose again from the grave. By faith in him, our sins can be forgiven and we can be assured of living forever with God and one day being raised from the
+dead like Christ. So what does it mean to believe, to have faith? First, it means to grasp what salvation "by faith" means. Believing in Christ does not mean that we are forgiven for our past, get a
+new start on life, and must simply try harder to live better than we did in the past. If this is your mind-set, you are still putting your faith in yourself. You are your own Savior. You are looking
+to your moral efforts and abilities to make yourself right with God. But this will never work. No one lives a perfect life. Even your best deeds are tainted by selfish and impure motives.
+
+The gospel is that when we believe in Christ, there is now "no condemnation for those who are in Christ Jesus" (Rom 8:1). Putting our faith in Christ is not about trying harder; it means
+transferring our trust away from ourselves and resting in him. It means asking, "Father, accept me not because of what I have done or ever will do but because of what Jesus has done in my
+place." When we do that, we are adopted into God's family and given the right to his eternal, fatherly love (John 1:12-13).
+
+The second thing to keep in mind is that it is not the quality of the faith itself that saves us; it is what Jesus has done for us. It is easy to assume that being "saved by faith" means that God
+will now love us because of the depth of our repentance and faith. But that is to once again subtly make ourselves our own Savior rather than Jesus. It is not the amount of our faith but the object
+of our faith that saves us. Imagine two people boarding an airplane. One person has almost no faith in the plane or the crew and is filled with fears and doubts. The other has great confidence
+in the plane and the crew. They both enter the plane, fly to a destination, and get off the plane safely. One person had a hundred times more faith in the plane than the other did, but they were
+equally safe. It wasn't the amount of their faith but the object of their faith (the plane and crew) that kept them from suffering harm and arriving safely at their destination. Saving faith isn't
+a level of psychological certainty; it is an act of the will in which we rest in Jesus. We give ourselves wholly to him because he gave himself wholly for us (Mark 8:34; Rev 3:20).
+
+### THE RIGHT RELATIONSHIP OF THE GOSPEL TO ALL OF MINISTRY
+There is always a danger that church leaders and ministers will conceive of the gospel as merely the minimum standard of doctrinal content for being a Christian believer. As a result,
+many preachers and leaders are energized by thoughts of teaching more advanced doctrine, or of deeper forms of spirituality, or of intentional community and the sacraments, or of "deeper
+discipleship," or of psychological healing, or of social justice and cultural engagement. One of the reasons is the natural emergence of specialization as a church grows and ages. People naturally
+want to go deeper into various topics and ministry disciplines. But this tendency can cause us to lose sight of the whole. Though we may have an area or a ministry that we tend to focus on, the
+gospel is what brings unity to all that we do. Every form of ministry is empowered by the gospel, based on the gospel, and is a result of the gospel. 
+
+Perhaps an illustration here will help. Imagine you're in an orchestra and you begin to play, but the sound is horrific because the instruments are out of tune. The problem can't be fixed
+by simply tuning them to each other. It won't help for each person to get in tune to the person next to her because each person will be tuning to something different. No, they will all need to be
+tuned properly to one source of pitch. Often we go about trying to tune ourselves to the sound of everything else in our lives. We often hear this described as "getting balance." But the questions
+that need to be asked are these: "Balanced to what?" "Tuned to what?" The gospel does not begin by tuning us in relation to our particular problems and surroundings; it first re-tunes us to
+God. 19
+
+If an element of ministry is not recognized as a result of the gospel, it may sometimes be mistaken for the gospel and eventually supplant the gospel in the church's preaching and
+teaching. Counseling, spiritual direction, doing justice, engaging culture, doctrinal instruction, and even evangelism itself may become the main thing instead of the gospel. In such cases, the
+gospel as outlined above is no longer understood as the fountainhead, the central dynamic, from which all other things proceed. It is no longer the center of the preaching, the thinking, or the
+life of the church; some other good thing has replaced it. As a consequence, conversions will begin to dwindle in number because the gospel is not preached with a kind of convicting sharpness
+that lays bare the secrets of the heart (1 Cor 14:24-25) and gives believers and nonbelievers a sense of God's reality, even against their wills.
+
+Because the gospel is endlessly rich, it can handle the burden of being the one "main thing” of a church. First Peter 1:12 and its context indicate that the angels never tire of looking into
+and exploring the wonders of the gospel. It can be preached from innumerable stories, themes, and principles from all over the Bible. But when the preaching of the gospel is either confused
+with or separated from the other endeavors of the church, preaching becomes mere exhortation (to get with the church's program or a biblical standard of ethics) or informational instruction
+(to inculcate the church's values and beliefs). When the proper connection between the gospel and any aspect of ministry is severed, both are shortchanged.
+
+The gospel is "heraldic proclamation" before it is anything else.20 It is news that creates a life of love, but the life of love is not itself the gospel. The gospel is not everything that we believe, do,
+or say. The gospel must primarily be understood as good news, and the news is not as much about what we must do as about what has been done. The gospel is preeminently a report about the
+work of Christ on our behalf — salvation accomplished for us. That's how it is a gospel of grace. Yet, as we will see in the next chapter, the fact that the gospel is news does not mean it is a simple
+message. There is no such thing as a "one size fits all" understanding of the gospel.
+
+> **QUESTIONS FOR DISCUSSION AND REFLECTION**  
+> 1. This chapter looks at several truths that are not the gospel. In what sense are each of these not the gospel?
+>    - everything the Bible teaches
+>    - a way of life; something we do
+>    - joining Christ's kingdom program; a divine rehabilitation plan for the world
+>    
+>    If the gospel is not everything, what is the gospel?
+> 2. Keller writes, "The gospel is not about something we do but about what has been done for us, and yet the gospel results in a whole new way of life. This grace and the good
+deeds that result must be both distinguished and connected." How can an individual or ministry go about distinguishing between "the gospel" and "the results of the
+gospel"?
+> 3. The section titled "The Gospel Has Chapters" shows how to present the gospel to someone as chapters in a larger story. What other "conversational pathways" have you
+found to be fruitful in relating the gospel to non-Christians? To Christians?
+> 4. What happens when the gospel is proclaimed without its results, or when its results are pursued without proclamation?

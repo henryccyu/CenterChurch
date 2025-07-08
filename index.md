@@ -1,14 +1,14 @@
 # Center Church
 ## GOSPEL
 ### PART 1: GOSPEL THEOLOGY
-- [Chapter 1](English/chapter01.html)  
-- [Chapter 2](English/chapter02.html)  
-- [Chapter 3](English/chapter03.html)  
+- [1. THE GOSPEL IS NOT EVERYTHING](English/chapter01.html)  
+- [2. THE GOSPEL IS NOT A SIMPLE THING](English/chapter02.html)  
+- [3. THE GOSPEL AFFECTS EVERYTHING](English/chapter03.html)  
 
 ### PART 2: GOSPEL RENEWAL
-- [Chapter 4](English/chapter04.html)  
+- [4. THE NEED FOR GOSPEL RENEWAL](English/chapter04.html)  
 - [5. THE ESSENCE OF GOSPEL RENEWAL](English/chapter05.html)  
-- [Chapter 6](English/chapter06.html)  
+- [6. THE WORK OF GOSPEL RENEWAL](English/chapter06.html)  
 
 ## CITY
 ### PART 3: GOSPEL CONTEXTUALIZATION
@@ -26,13 +26,13 @@
 ### PART 5: CULTURAL ENGAGEMENT
 - [15 THE CULTURAL CRISIS OF THE CHURCH](English/chapter15.html)  
 - [16 THE CULTURAL RESPONSES OF THE CHURCH](English/chapter16.html)  
-- [Chapter 17](English/chapter17.html)  
-- [Chapter 18](English/chapter18.html)
+- [17. WHY ALL THE MODELS ARE RIGHT AND WRONG](English/chapter17.html)  
+- [18. CULTURAL ENGAGEMENT THROUGH BLENDED INSIGHTS](English/chapter18.html)
 
 ## MOVEMENT
 ### PART 6: MISSIONAL COMMUNITY  
-- [Chapter 19](English/chapter19.html)  
-- [Chapter 20](English/chapter20.html)  
+- [19. THE SEARCH FOR THE MISSIONAL CHURCH](English/chapter19.html)  
+- [20. CENTERING THE MISSIONAL CHURCH](English/chapter20.html)  
 - [Chapter 21](English/chapter21.html)
 
 ### PART 7: INTEGRATIVE MINISTRY  

@@ -64,7 +64,7 @@ The table below highlights a few of these. In the next three sections, we will h
 Home, according to Scripture, is a place where life flourishes fully-spiritually, physically, and socially. It is a place where physical life and health are sustained and where our most intimate
 love relationships are nurtured. It is place of rest, of shalom.
 
-![image](https://github.com/user-attachments/assets/ae3784d0-66b0-4bb1-9f24-dad48cb07610)
+![image](https://github.com/user-attachments/assets/bccb7fb4-9fdb-4db2-8e9f-0de6c52c4e37)
 
 The story of the human race, however, is one of exile and longing for homecoming. Death and disease have distorted and defaced God's good physical creation. Society is a Babel filled
 with selfishness, self-exaltation, and pride. Exploitation and violence mar and ruin human community. The world as it now exists is not our true home. We were made for a place without

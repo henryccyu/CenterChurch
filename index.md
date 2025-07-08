@@ -1,19 +1,19 @@
 # Center Church
 ## GOSPEL
 ### PART 1: GOSPEL THEOLOGY
-- [Chapter 1](chapter01.html)  
-- [Chapter 2](chapter02.html)  
-- [Chapter 3](chapter03.html)  
+- [Chapter 1](English/chapter01.html)  
+- [Chapter 2](English/chapter02.html)  
+- [Chapter 3](English/chapter03.html)  
 
 ### PART 2: GOSPEL RENEWAL
-- [Chapter 4](chapter04.html)  
-- [5. THE ESSENCE OF GOSPEL RENEWAL](chapter05.html)  
-- [Chapter 6](chapter06.html)  
+- [Chapter 4](English/chapter04.html)  
+- [5. THE ESSENCE OF GOSPEL RENEWAL](English/chapter05.html)  
+- [Chapter 6](English/chapter06.html)  
 
 ## CITY
 ### PART 3: GOSPEL CONTEXTUALIZATION
-- [7. THE INEVITABILITY OF CONTEXTUALIZING](chapter07.html)  
-- [8. BALANCED CONTEXTUALIZATION](chapter08.html)  
+- [7. THE INEVITABILITY OF CONTEXTUALIZING](English/chapter07.html)  
+- [8. BALANCED CONTEXTUALIZATION](English/chapter08.html)  
 - [9. BIBLICAL CONTEXTUALIZATION](chapter09.html)  
 - [10. ACTIVE CONTEXTUALIZATION](chapter10.html)
 

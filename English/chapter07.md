@@ -1,9 +1,4 @@
 # Chapter 7 THE INEVITABILITY OF CONTEXTUALIZING
-Redeemer City to City 是一个致力于在世界各大城市推动教会植堂和福音运动的机构。作为我们全球事工的一部分，我们曾有机会与中国家庭教会的领袖交流。神正在以非凡的增长祝福中国的教会。然而，那些在乡村事工中经历过神祝福的中国教会和牧者，当他们进入迅速扩张的中国城市，并尝试用在乡村被祝福的方式来传讲福音和进行事工时，却发现果效不如预期。  
-
-十多年前，几个荷兰宗派曾向我们寻求帮助。尽管他们在城市以外的地区发展良好，但他们多年来一直未能在阿姆斯特丹建立新的、有活力的教会，而大多数现有教会也已消亡。这些领袖熟知福音，也拥有充足的资金资源，并且有强烈的宣教愿望。然而，他们在本国最大的城市却难以推动任何事工的开展。  
-
-在这两种情况下，原本在本国腹地蓬勃发展的事工，在城市中却收效甚微。人们可能会轻易得出结论：“城市里的居民过于属灵骄傲和刚硬。” 但我们所遇到的教会领袖选择谦卑地回应，并为问题承担责任。他们认识到，适用于非城市地区的福音事工需要调整，以适应城市文化。他们的判断是正确的。这种对文化的必要调整，就是我们所说的“处境化”（contextualization）的一个典型例子。
 
 Redeemer City to City is an agency that promotes church planting and gospel movements in the great city centers of the world.¹ As part of our global ministry, we have had opportunities to talk with Chinese house church leaders. God is blessing the church in China with extraordinary growth. However, when Chinese churches and ministers who had experienced God's blessing in their rural ministries entered the mushrooming cities of China and tried to minister and communicate the gospel in the same ways that had been blessed in the countryside, they saw less fruitfulness.
 
@@ -12,22 +7,6 @@ Over a decade ago, several Dutch denominations approached us. While they were th
 In both cases, ministry that was thriving in the heartland of the country was unable to make much of a dent in the city. It would have been easy to say, "The people of the city are too spiritually proud and hardened." But the church leaders we met chose to respond humbly and took responsibility for the problem. They concluded that the gospel ministry that had fit nonurban areas well would need to be adapted to the culture of urban life. And they were right. This necessary adaptation to the culture is an example of what we call "contextualization."3
 
 ## SOUND CONTEXTUALIZATION
-**处境化（Contextualization）并不是——正如人们常常争论的那样——“迎合人们的耳朵，告诉他们想听的话。”** 相反，它是用圣经的答案回应人们在特定时代和环境中对人生的疑问，即便这些答案并非他们所想听见的。处境化的关键在于用他们能够理解的语言和形式，以他们能感受到的方式进行沟通和论证，即便他们可能最终拒绝福音。  
-
-健全的处境化意味着在不妥协福音本质和核心内容的前提下，将福音的信息和事工翻译、调整，使其适应特定文化。伟大的宣教任务在于，以一种不使福音显得不必要地陌生或格格不入的方式，向新的文化表达福音信息，同时不削弱或掩盖圣经真理所带来的冲击和冒犯性。处境化后的福音既要清晰、吸引人，同时也必须挑战罪人对自身的依赖，并呼召他们悔改。它既要适应并与文化建立联系，同时又要挑战并面对文化。如果我们没有适应文化，或者没有挑战文化——如果我们过度或不足地进行处境化——我们的事工就会缺乏果效，因为我们未能正确地进行处境化。  
-
-也许理解这个概念最简单的方法就是思考一个常见现象。你是否曾听过一篇符合圣经、教义准确的讲道，但却枯燥到让人想哭？是什么让它如此乏味？有时是因为讲道方式（比如单调的语调），但更常见的原因是，这篇讲道虽然教义正确，却与听众毫无关联。听众可能会想：“你告诉了我一些或许是真的事情，但无论如何，我并不关心。我看不出这对我的思考、感受和行为有何影响。” 一篇无聊的讲道之所以无聊，是因为它没有把真理带入听众的日常生活和现实世界。它没有将圣经的真理与特定时代和环境中人们的希望、叙事、恐惧和误解联系起来。它无法让听众甚至愿意相信基督教是真实的。换句话说，这样的讲道在处境化方面是失败的。  
-
-当我们忠实且熟练地进行处境化时，我们向人们展示，他们的社会“文化叙事”和内心的希望，唯有在耶稣基督里才能找到真正的答案和圆满的实现。这是什么意思呢？有些文化是实用主义导向的，鼓励人们积累财富和权力；有些文化是个人主义至上的，倡导个人自由高于一切；有些文化则以“荣誉与羞耻”为核心，强调尊重、名誉、责任，以及为家庭带来荣耀；还有些文化高度重视艺术、哲学和学术。这些被称为“文化叙事”，因为它们是一个群体用来解释自身存在意义的故事。然而，无论个人或文化的叙事是什么，健全的处境化都能向人们展示，他们人生故事的主线只有在基督里才能得到圆满的结局。  
-
-那么，处境化涉及文化，但文化究竟是什么？有效的处境化需要在最广义的层面上理解和应对文化。文化通常被狭义地理解为语言、音乐、艺术、食物和民俗，但实际上，它涉及人类在世界上的一切生活方式。文化是人类对自然原材料的加工和创造。我们用地球上的原材料建造房屋，使用声音和节奏创作音乐，将个人经历编织成故事，这些都构成了我们所处的文化环境。而所有这些行为，都是为了服务于特定的“主导真理”、核心信念和对现实世界的基本假设。  
-
-宣教士 G. Linwood Barney 将文化比作洋葱。最核心的部分是世界观——关于世界、宇宙秩序和人性的基本信念。紧接着的是价值观——什么被认为是善的、真的和美的。再外层是一系列社会制度，如法律体系、教育、家庭生活和治理结构，这些制度建立在世界观和价值观的基础之上。最外层，则是文化最容易观察到的部分，包括社会习俗、人类行为、物质产物、建筑环境等。有人批评这种“洋葱”或“阶梯”模型过于简单化，无法充分说明这些“层次”之间的互动及其对彼此的影响。例如，美国的州际高速公路系统催生了“汽车文化”，进而改变了传统社区模式，并影响了许多社会制度。因此，文化的变化并不是单向或线性的，而是高度互动的。  
-
-但关键在于，处境化福音必须考虑文化的所有这些层面。它不仅仅是改变人的行为，而是改变人的世界观。它不能仅仅停留在表面调整，比如改变音乐风格或服饰，而必须深入文化的核心。文化影响人类生活的方方面面，包括决策方式、情感表达、公共与私人的界限、个人与群体的关系、社会权力的运用，以及性别、代际、阶级和种族之间的互动方式。文化塑造人们对时间的理解、冲突解决方式、问题解决策略，甚至影响人们推理的方式。因此，进行福音事工时，必须考虑所有这些文化因素。正如大卫·威尔斯（David Wells）所言：“处境化不仅仅是圣经教义的实际应用，而是将教义转换为一种概念体系，使其能够融入当代社会结构和生活模式的现实之中。”  
-
-**熟练的处境化能力，是当今有效事工的关键之一。** 特别是在城市和文化中心的教会，更需要对处境化问题保持高度敏感。因为文化主要是在这些地方被塑造，并不断向新的方向发展。此外，城市是多种人类文化共存且相互碰撞的地方，因此文化的融合和复杂性在这里尤为突出。
-
 Contextualization is not-as is often argued -"giving people what they want to hear."4 Rather, it is giving people the Bible's answers, which they may not at all want to hear, to questions about life that people in their particular time and place are asking, in language and forms they can comprehend, and through appeals and arguments with force they can feel, even if they reject them.
 
 Sound contextualization means translating and adapting the communication and ministry of the gospel to a particular culture without compromising the essence and particulars of the gospel itself. The great missionary task is to express the gospel message to a new culture in a way that avoids making the message unnecessarily alien to that culture, yet without removing or obscuring the scandal and offense of biblical truth. A contextualized gospel is marked by clarity and attractiveness, and yet it still challenges sinners' self-sufficiency and calls them to repentance. It adapts and connects to the culture, yet at the same time challenges and confronts it. If we fail to adapt to the culture or if we fail to challenge the culture - if we under- or overcontextualize - our ministry will be unfruitful because we have failed to contextualize well.
@@ -45,16 +24,6 @@ But the main point here is that contextualizing the gospel in a culture must acc
 Skill in contextualization is one of the keys to effective ministry today. In particular, churches in urban and cultural centers must be exceptionally sensitive to issues of contextualization, because it is largely there that a society's culture is being forged and is taking new directions. It is also a place where multiple human cultures live together in uneasy tension, so cultural compounds are more complex and blended there.
 
 ## A BRIEF HISTORY OF THE TERM
-**“处境化”这一术语可能最早由台湾出生的周守仁（Shoki Coe）在1972年提出**。他是世界基督教协进会（World Council of Churches, WCC）成立的重要推动者之一。周守仁质疑了由亨利·范恩（Henry Venn）和鲁弗斯·安德森（Rufus Anderson）所提出的早期“本土教会运动”模式的局限性。范恩和安德森指导西方传教士在新文化中建立“自养、自立、自传”的教会。过去的传教士在异文化中建立教会后，长期掌控教会，只让本地信徒担任辅助性角色，并且明确要求本地基督徒全面接受西方的信仰表达方式。然而，“本土教会运动”则强调，传教士应视自己为临时工，其任务是进行初步的福音传播，并尽快将教会交给本地领导，使基督徒能够用自己的语言、音乐和文化来敬拜和服侍。  
-
-**这一模式是基督教宣教观的一大进步，但周守仁认为，光是让本地领袖掌管教会还不够**。他指出，传教士虽然把领导权交给了本地基督徒，但教会的形式——表达福音的方式、信仰架构和组织模式——仍然完全是西方式的。本地基督徒并没有被鼓励去创造性地思考如何将福音信息与他们自己的文化相结合。  
-
-世界基督教协进会的“神学教育基金”（Theological Education Fund, TEF）是第一个使用并推广“处境化”这一术语的机构。然而，最早的“处境化”实践却引发了严重的争议。当时，仍然具有很大影响力的存在主义神学家鲁道夫·布特曼（Rudolf Bultmann）及其学生恩斯特·凯瑟曼（Ernst Käsemann）的思想影响了WCC的神学方向。这些神学家认为，新约本身是高度适应希腊文化的产物，而希腊世界观并不具有永久性的权威。因此，他们主张，基督徒可以根据自身文化来决定“基督教启示的内在核心”，而其他部分则可以舍弃或调整。  
-
-**这种处境化的方式假设，圣经文本（圣经）和文化背景（处境）都是相对的，并且具有同等的权威**。通过一种辩证的互动过程，我们可以寻找到一种适合特定文化、特定时间的“基督教真理”（truth的小写t）。因此，几乎任何基督教信仰的核心内容——基督的神性、三位一体的教义、福音的恩典基础——都可以被抛弃，或根据不同文化的需求赋予全新的解释。以“适应文化”为名，教会可能会对基督教历史信仰进行激进的改动。  
-
-**这一现象的讽刺性极强**。最初提出处境化的目的，是希望让本地教会能够在没有西方思想框架的干预下进行神学思考。然而，WCC神学教育基金所推动的许多观点，本质上依然深受西方思想的影响。这种基于“非权威圣经观”的处境化，实际上来源于西方现代神学家的观点，而这些神学家本身已经接受了欧洲启蒙运动对超自然和神迹的怀疑态度。最终的结果是，基督教信仰再次被过度适应文化——不同的是，这次适应的不是19世纪传教士所代表的保守西方文化，而是20世纪西方学术界的自由派文化。
-
 The term contextualization may have first been used in 1972 by Shoki Coe, a Taiwanese-born man who was one of the key figures in the formation of the World Council of Churches.10 Coe questioned the adequacy of the older "indigenous church movement" model identified with Henry Venn and Rufus Anderson. Venn and Anderson directed Western missionaries to plant churches in new cultures that were "self-supporting, self-governing, and self-propagating." Older missionaries had planted churches in foreign cultures and maintained control of them indefinitely, using native Christians only in assisting roles. They also explicitly directed national Christians to adopt Western ways wholesale. The indigenous church movement, however, called missionaries to see themselves as temporary workers whose job was to do initial evangelism and then, as quickly as possible, to turn the churches over to indigenous, national leadership so the Christian churches could worship and minister in native languages, music, and culture.
 
 This was a good and important step forward in our understanding of how Christian mission is conducted. But Coe, who served as principal of Tainan Theological College, argued that something more than just empowering national leaders was needed. He observed that the missionaries still gave national leaders forms of church ministry — ways of expressing and formulating the gospel and structuring churches — that were unalterably Western. National Christians were not being encouraged to think creatively about how to communicate the gospel message to their own culture.
@@ -66,45 +35,12 @@ This approach to contextualization assumes that both the text (Bible) and contex
 The irony is deep. The original call for contextualization intended to allow national churches to do theological reflection without having extrabiblical, Western thought forms imposed on them. However, much of what the ecumenical WCC Theological Education Fund propagated was nonetheless deeply shaped by Western thinking. Contextualization based on the idea of a nonauthoritative Bible stems from the views of modern Western theologians who themselves accepted the European Enlightenment's skepticism about the miraculous and supernatural. The result as that, yet again, the Christian faith was overadapted to culture. This time it was not the older, more conservative Western culture of nineteenth-century missionaries, but the liberal culture of twentieth-century Western academia.
 
 ## THE DANGER OF CONTEXTUALIZING
-**由于这一历史背景，许多保守神学圈的人对“处境化”一词感到不安，这是完全可以理解的**。正如克雷格·布隆伯格（Craig Blomberg）在一篇关于处境化的文章中指出的：“许多接受普救论的人最初都是福音派……在西班牙语世界，许多解放神学家也是如此。” 在这些情况下，文化的价值观被置于圣经权威之上。  
-
-### **文化是中立的吗？**  
-将文化视为“中立”的观点实际上无法解释文化的影响力。詹姆斯·亨特（James Hunter）写道：“这种观点的问题在于……它假设了一个自由独立于文化之外的‘自我’，这个‘自我’不受其所在社群的道德承诺所束缚。但实际上，文化远比自由主义对‘自我’的理解所允许的更加广泛、强大和具有影响力。”  
-
-**尽管“处境化”一词在当时尚未出现，但这正是J·格雷沙姆·梅琴（J. Gresham Machen）在20世纪初所面对的问题**。在他的著作《基督教与自由主义》（*Christianity and Liberalism*）中，梅琴指出，自由派基督教试图解决一个核心问题：  
-> 基督教与现代文化之间的关系是什么？在科学时代，基督教是否仍然可以存在？  
-> 现代自由主义试图解决这一问题。它承认，科学可能会对基督教信仰的具体内容提出质疑，比如基督的人格教义，以及他通过死亡和复活带来的救赎。因此，自由派神学家希望挽救某些被认为是“基督教本质”的一般性宗教原则，而将这些具体信仰内容视为仅仅是暂时的象征。  
-
-梅琴继续说道：  
-> **事实上，自由派神学家在放弃一个又一个基督教教义之后，所保留的已不再是基督教，而是一种完全不同的宗教，甚至应归入一个完全不同的类别。**  
-
-### **梅琴对自由派基督教的批判**  
-梅琴指出，20世纪初的文化已经变得“自然主义化”——它完全拒绝任何超自然的神圣介入。在这种文化观下，一切事物都必须有一个自然的、科学的解释。然而，自由派基督教接受了这一文化信念，即使这明显违背了圣经的教导。自由派神学家为了让基督教变得“适合”现代人，重新定义了所有的教义，使其符合自然主义世界观。这种重新定义的基督教呈现出以下特征：  
-
-- **圣经充满了神圣的智慧，但这并不意味着它是无误的**，它只是一本有人类错误和矛盾的文献。  
-- **耶稣是神的儿子，但这并不意味着他是先存的、神圣的上帝之子**，他只是一个被神的灵充满的伟大人物。  
-- **耶稣的死不是为赎罪而献上的宇宙性事件，而只是一个激励人的爱与牺牲的榜样**。  
-- **成为基督徒并不意味着经历超自然的重生，而是意味着效法耶稣，遵循登山宝训的教导，在世界上实践爱与公义的生活**。  
-
-梅琴强烈地论证说，这种试图将基督教与自然主义哲学调和的努力，最终导致的不是对圣经信仰的适应，而是对基督教的根本性改变，使之成为了一种全新的宗教，几乎在每个重要的教义上都与经典基督教相悖。他在书中“救赎”一章中特别指出：  
-> **如果耶稣的救赎只是“榜样”，如果成为基督徒仅仅意味着效法耶稣，而不是重生得救，那么基督教的福音（因恩得救）就被替换成了一种“因行为得救”的宗教。这样的教导不过是精致化的律法主义。**  
-
-### **处境化的危险：何时越界？**  
-**“处境化”一直以来——并且仍然常常——被用作宗教混合主义（syncretism）的借口**。这不仅仅是将福音适应特定文化，而是彻底放弃福音，将基督教过度适应一种完全不同的世界观，使之变质为另一种宗教。那么，我们该如何判断何时从合理的处境化走向了致命的混合主义呢？  
-
-在一篇有益的文章中，Natee Tanchanpongs 指出，福音派通常试图通过区分“核心”教义和“非核心”教义来捍卫处境化。他们认为，**只要保持福音的核心要素，调整次要部分，就仍然是合理的处境化；一旦“关键和基本的元素”丢失，就变成了混合主义**。  
-
-然而，Tanchanpongs 认为，这种划分是错误的，因为它假设圣经中的某些教义比其他教义更重要。事实上，Harvie Conn 早就指出，混合主义最可能发生在我们以“文化”为借口，拒绝让整本圣经说话的时候。**每一种文化都会觉得圣经的某些部分“吸引人”，而另一些部分“令人反感”**。因此，该文化中的人就会倾向于认为那些“吸引人的部分”更“重要”或“核心”，而将“令人反感的部分”视为可以忽略或修改的。**这正是梅琴所批评的自由派基督教所做的事情：他们拒绝了圣经中“令人反感”的超自然内容，取而代之的是一种不冒犯人的信仰**。  
-
-### **忠实的处境化 vs. 混合主义**  
-**混合主义的本质，是拒绝圣经的全权性，并挑选其中的教义来构建一种不会冒犯文化的基督教**。因此，**真正忠实的处境化，应该是在不改变圣经信息的情况下，使所有圣经教导都能被文化理解和实践**（见下文关于“在处境化中建立‘圣经中的圣经’的危险”）。
-
 Because of this history, the word contextualization makes many people in conservative theological circles nervous, as indeed it should. As Craig Blomberg points out in an essay on contextualization, "Many who have embraced universalism began life as evangelicals... In the Spanish-speaking world, the same is true of many liberation theologians."14 In all these cases, the values of a culture were given preference over the authority of Scripture.
 
-> ## IS CULTURE NEUTRAL?
+> **IS CULTURE NEUTRAL?**  
 > The view of culture as something neutral can't really account for the power of culture. James Hunter writes, "The problem with this perspective... is that it assumes a... self, one free and Independent from culture, unencumbered by moral commitments defined by virtue of one's membership in the community. But culture is much more pervasive, powerful, and compelling than is allowed for in the liberal understanding of the self."13
 
-_Although the word contextualization was not around at the time, this was the same issue J. Gresham Machen faced in the Presbyterian Church in the early twentieth century. In his book Christianity and Liberalism, Machen states that liberal Christianity was trying to solve a problem:  
+Although the word contextualization was not around at the time, this was the same issue J. Gresham Machen faced in the Presbyterian Church in the early twentieth century. In his book Christianity and Liberalism, Machen states that liberal Christianity was trying to solve a problem:  
 What is the relation between Christianity and modern culture; may Christianity be maintained in a scientific age?  
 It is this problem which modern liberalism attempts to solve. Admitting that scientific objections may arise against the particularities of the Christian religion — against the Christian doctrines of the person of Christ, and of redemption through His death and resurrection - the liberal theologian seeks to rescue certain of the general principles of religion, of which these particularities are thought to be mere temporary symbols, and these general principles he regards as constituting "the essence of Christianity."
 
@@ -123,32 +59,6 @@ The call to contextualize the gospel has been - and still often is - used as a c
 Tanchanpongs argues, however, that it is wrong to look at Scripture and imagine that some core, essential teachings are more important than other, more tangential ones. In fact, Harvie Conn argued that syncretism is most likely to occur when (in the name of culture) we forbid the whole of Scripture to speak. Every culture will find some parts of Scripture more attractive and other parts more offensive. It will be natural, then, for those in that culture to consider the inoffensive parts more "important" and "essential" than the offensive parts. This is exactly what the liberal Christianity of Machen's day did in rejecting the "offensive" supernatural elements of the Bible. Syncretism is, in fact, a rejection of the full authority of the Bible, a picking and choosing among its various teachings to create a Christianity that does not confront or offend.19 Faithful contextualization, then, should adapt the communication and practice of all scriptural teaching to a culture (see below on the dangers of having a "canon within a canon" when contextualizing).
 
 ## THE INEVITABILITY OF CONTEXTUALIZATION
-这里有一个容易被忽视的美丽悖论：我们必须在特定的文化背景下表达普遍真理，但这并不意味着真理本身会因此丧失或变得不那么普遍。D. A. Carson 写道：“[虽然] 人类所能表达的任何真理都无法以超越文化的方式表达……但这并不意味着这些真理本身不超越文化。”20  
-
-我们必须努力保持这一重要声明的平衡。首先，这意味着没有一种单一的方式可以普遍适用于所有文化来表达基督教信仰。只要你表达福音，你就不可避免地会以某种方式使其对某些文化的人更易理解，而对其他人则较难理解。另一方面，尽管没有超越文化的表达方式，但福音却只有一个真实版本。福音的真理并非任何文化的产物，它对所有人类文化都具有审判权。如果你忘记了第一个真理——即没有脱离文化的福音表达——你就会认为只有一种正确的方式来传达福音，这将导致一种僵化的、受文化束缚的保守主义。而如果你忘记了第二个真理——即只有一个真正的福音——你可能会陷入相对主义，从而导致一种缺乏方向的自由主义。无论哪种情况，你都会在事工上变得不够忠诚，也不够有果效。  
-
-### 自由主义与自然主义  
-
-当自由派基督教接受自然主义时，它认为这是一种人类思想的永久性变化，必须加以接受。那些坚持超自然基督教的人，被认为是“站在历史的错误一边”。但这实际上是一个类别错误。早期现代性既是自然主义的（“一切都必须有自然的、科学的解释”），也是个人主义的（“不能有高于个人理性和选择的权威”）。然而，晚期现代性或后现代性虽然仍然坚持个人的自主性，却已经摒弃了自然主义对科学能最终解答所有重要问题、技术能解决所有重大问题的信心。自由派基督教与一个如今被视为正在消逝的、过时的文化观念绑定在一起。与此同时，五旬节派（基督教信仰中最强调超自然的派别）和其他形式的正统基督教在过去一百年里迅速增长，而自由派基督教却远远落后。  
-
-我们应当得出什么结论？如果没有一种单一的、脱离文化的方式来表达福音，那么文化调整（contextualization）就是不可避免的。只要你选择了一种语言进行表达，并在该语言中选择特定的词汇，语言所承载的文化特性就开始发挥作用。我们常常认为从一种语言翻译到另一种语言很简单——只需找到相应的同义词即可。但实际上很少有真正的同义词。例如，英文的“God”在德语中翻译为“Gott”，这看似简单，但德语使用者的文化背景使得“Gott”在他们听来与“God”在英语使用者听来是不同的。它对他们的意义有所不同。因此，你可能需要更多解释，才能让德语听众理解“God”一词在圣经中的概念，或者可能需要使用另一个词来产生相同的效果。一旦你选择了某些词语，你就在进行文化调整，这会使你的信息对某些人更容易理解，而对另一些人则不那么容易理解。没有一种普适于所有人的福音表达方式。21  
-
-然而，即便是在同一种语言的环境下，许多其他因素也不可避免地让我们必须进行文化调整。让我们回想一下无聊的讲道（sermon）。有时候，我们听到的讲道之所以显得无聊，是因为它持续的时间太长（或者太短），以至于听众无法保持专注。时间感知是人类生活中最具文化敏感性的领域之一。不同文化对“迟到”和“时间过长”的认知存在极大差异。例如，在美国，非裔和西班牙裔基督徒的礼拜仪式通常比大多数白人基督徒的耐心和舒适区多出至少 50% 的时间，包括更多的唱诗、祷告和讲道。因此，任何主持敬拜仪式的人，都不可避免地会调整文化，使其更贴近某些群体，同时远离其他群体。  
-
-讲道还可能因所选用的比喻和例证而失去听众的共鸣。当耶稣告诉那些向敌对人群传福音的人要避免“把珍珠丢给猪”（马太福音 7:6）时，他实际上结合了两个不同的领域——将福音的传讲与养猪的具体世界联系在一起。这样做比直接说“不要无限期地向敌对的人传讲福音”更具震撼力和启发性。然而，每个比喻必然要使用某些具体的生活经历。因此，一旦我们选择一个比喻，就会使某些人（那些有相同生活经验的人）更容易理解，而使其他人（那些没有这些生活经验的人）更难理解。  
-
-我曾与一位来自英国工人阶级背景的成熟基督徒交流过。他曾在一个坚定的福音派教会聚会一段时间，但该教会的所有领袖和牧师都来自上层阶级和精英学校。他们的讲道中经常使用他们熟悉的生活情境和概念，例如板球（cricket）和橄榄球（rugby）运动的比喻。他告诉我：“在我的世界里，人们对这些运动几乎一无所知，而这些持续出现的引用让我不断意识到自己没有上过他们的学校，也没有他们的特权。这虽然让我分心，但并非不可克服，因为我们在基督里是一体的。但我意识到，我无法带着我所服侍的工人阶级朋友们来这个教会。这些上层阶级的背景提醒会让我的朋友们很难认真听讲道。”  
-
-这是否意味着这间教会失败了？也许教会可以与这位信徒及其他人讨论，看看是否有方法能让自己变得对工人阶级群体不那么陌生。但这种调整始终是有限度的。传道者必须选择某些比喻和概念，而这不可避免地会使信息对某些文化群体更具意义，而对其他群体则较少影响。我们需要尽可能地扩展，使福音信息更具包容性。但我们也必须意识到自身的局限性，不应抱有一种幻想，认为我们能够以一种方式传福音，使其同时适用于所有人。  
-
-### 领导力中的文化调整  
-
-文化不仅影响语言表达，还深入影响基督教群体的组织方式——包括人际关系、领导风格、牧养监督和教导方式。例如，几年前，我的一位韩国同工观察我们教会的牧师团队如何做决策。他注意到，作为主任牧师的我，并不会首先表明自己的观点，而是试图让每个人——即便是最年轻、最资浅的人——先表达意见；然后，我会肯定他们的意见，并尽量将其融入最终的决策。而在第一代韩国教会里，主任牧师会先明确表达自己的意见，然后其他人按照年龄和资历依次发表评论，而年轻的牧师往往只有在决策已成定局后才会发言。  
-
-这让我意识到，在我们教会的牧师决策过程中，不可能有一种脱离文化的方式。我们不可避免地会适应某种特定的文化。  
-
-一旦我们寻求沟通，我们就不可避免地在做各种文化调整。
-
 Here is a beautiful paradox that is easy to miss: the fact that we must express universal truth in a particular cultural context does not mean that the truth itself is somehow lost or less universal. D. A. Carson writes, "[While] no truth which human beings may articulate can ever be articulated in a
 culture-transcending way... that does not mean that the truth thus articulated does not transcend culture.”20
 
@@ -157,7 +67,7 @@ more understandable and accessible for people in some cultures and less so for o
 stand in judgment over all human cultures. If you forget the first truth-that there is no culture-less presentation of the gospel - you will think there is only one true way to communicate it, and you are on your way to a rigid, culturally bound conservatism. If you forget the second truth-that
 there is only one true gospel-you may fall into relativism, which will lead to a rudderless liberalism. Either way, you will be less faithful and less fruitful in ministry.
 
-> ## LIBERALISM AND NATURALISM
+> **LIBERALISM AND NATURALISM**  
 > When liberal Christianity adopted naturalism, it assumed this was a permanent change in human thinking that had to be accepted. Those who clung to supernatural Christianity were, it was said, "on the wrong side of history." But this was a category mistake. Early modernity was both naturalistic ("everything must have a natural, scientific explanation") and individualistic ("there can be no higher authority than the reasoning, choosing self"). Late modernity or postmodernity, however, while maintaining belief in the autonomous self, has rejected naturalism's confidence that science can eventually answer all-important questions and that technology can solve all significant problems. Liberal Christianity wedded itself to what is now seen as a fading, obsolete cultural view. Pentecostalism (the most supernaturalistic form of the faith) and other forms of orthodox Christianity have grown exponentially in the past hundred years, leaving liberal Christianity far behind.
 
 What should we conclude from this? If there is no single, context-free way to express the gospel, then contextualization is inevitable. As soon as you choose a language to speak in and particular words to use within that language, the culture-laden nature of words comes into play. We often think that translating words from one language to another is simple - it's just a matter of locating the synonym in the other language. But there are few true synonyms. The word God is translated into German as Gott- simple enough. But the cultural history of German speakers is such that the word Gott strikes German ears differently than the English word God strikes the ears of English speakers. It means something different to them. You may need to do more explanation if you are to give German speakers the same biblical concept of God that the word conveys to English speakers. Or maybe a different word will have to be used to have the same effect. As soon as you choose words, you are contextualizing, and you become more accessible to some people and less so to others. There is no universal presentation of the gospel for all people.21
@@ -174,45 +84,17 @@ Another reason a sermon can be accurate but still have little impact is that the
 
 We have talked about the manner and mode of preaching, but contextualization also has much to do with the content. A sermon could be unengaging to a person because, though expressing accurate biblical truth, it does not connect biblical teaching to the main objections and questions people in that culture have about faith. A few years ago, I participated in a consultation on evangelism for several churches in London. One of the dilemmas we discussed was the two very different groups of non-Christians in a particular area of the city. On one side were millions of Hindus and Muslims who believed that Christianity was not moralistic enough; on the other side were secular British people who thought that Christianity was far too rigidly moralistic. Of course, the gospel is neither legalism nor antinomianism, and so it is possible to preach a single sermon on the gospel that engages listeners from both groups, but if we are ministering in a neighborhood or area dominated by one of these groups, we must preach each passage with the particular objections of that people group firmly in mind. No one single gospel presentation will be equally engaging and compelling to both sides.
 
-> ## GARDENS OR FIELDS?
+> **GARDENS OR FIELDS?**  
 > Craig Blomberg points out that in Matthew's parable of the mustard seed, the sower sows his seed in a “field” (agros, Matt 13:31), while in Luke the sowing is in a “garden” (kepos, Luke 13:19). Jews never grew mustard plants in gardens, but always out on farms, while Greeks in the Mediterranean basin did the opposite. It appears that each gospel writer was changing the word that Jesus used in Mark—the word for "earth" or "ground" (ge, Mark 4:31)—for the sake of his hearers. There is a technical contradiction between the Matthean and Lukan terms, states Blomberg, "but not a material one. Luke changes the wording precisely so that his audience is not distracted from... the lesson by puzzling over an….. improbable practice." The result is that Luke's audience "receives his teaching with the same impact as the original audience."22
 
 Finally, as we will see below, contextualization doesn't simply include language and vocabulary, emotional expressiveness and illustrations. It goes even deeper. Contextualization affects the way we reason because people in one culture find one way of appealing persuasive, while those of another may not. Some people are more logical; some are more intuitive. When we choose a particular way to persuade and argue, we will unavoidably be adapting more to some kinds of people than to others.
 
-> ## CONTEXTUALIZATION IN LEADERSHIP
+> **CONTEXTUALIZATION IN LEADERSHIP**  
 > I used a boring sermon as my case study for contextualization (or a lack of it), and so all my examples have been about verbal communication of the gospel. But culture has a pervasive impact on every aspect of how a Christian community is ordered - how people relate to each other, how leadership is exercised, how pastoral oversight and instruction is done. For example, some years ago, a Korean member of my staff watched our pastoral staff make a decision. He noticed that I as senior pastor would not betray my view at first but would try to get everyone, even the youngest and newest, to offer their opinion; then I would affirm them and try to incorporate their input into our final decision. He pointed out that in a first-generation Korean church, the senior pastor would give his full view first and then others would comment in order of age and seniority. Junior members of the pastoral staff only spoke after the decision was already a fait accompli. As I listened to him, I realized there was no culture-free way for the pastors of my church to make a decision. We were unavoidably going to be very contextualized to one culture.
 
 As soon as we seek to communicate, we will automatically be making all sorts of cultural moves.
 
 ## THE DANGER OF NOT CONTEXTUALIZING (OR OF THINKING YOU AREN'T)
-所有的福音事工和交流本质上都已经深深地适应了特定的文化。因此，有意识地进行文化处境化（contextualization）是至关重要的。如果我们从未刻意思考如何正确地将福音事工处境化以适应新的文化，我们就会在不知不觉中深受另一种文化的影响。这样一来，我们的福音事工将会对自身文化过度适应，而对新文化适应不足，最终导致对基督教信息的扭曲。  
-
-对于社会主导群体的成员来说，文化处境化的概念尤其难以理解。由于少数族裔必须在两种文化中生存——主流文化和他们自身的亚文化——他们往往更能察觉到文化对人们认知事物方式的深远影响。在电影《老爷车》（Gran Torino）中，一位名叫沃尔特·科瓦尔斯基（克林特·伊斯特伍德饰）的蓝领美国老人在底特律一个衰败的社区里与一个亚裔家庭做邻居。他无法理解赫蒙族（Hmong）的文化形式，而年长的赫蒙族人（不会说英语，完全生活在他们的族群环境中）也觉得沃尔特十分奇怪、无法理解。然而，赫蒙族少女苏（Sue）却是双文化背景的——她同时生活在两个世界里。因此，她既能理解和欣赏沃尔特，也能理解自己的父母和祖父母。正因如此，她能够有效地向双方沟通彼此的文化。这不正是我们在向远离福音的文化传递真理时所要做的事情吗？  
-
-在美国，盎格鲁裔美国人的公共生活和私人生活都在同一种文化中。因此，他们往往对文化缺乏敏感度。他们与自己的文化的关系，就像一条鱼被问及水是什么时会回答：“水是什么？”如果从未离开过水，就不会意识到自己正身处其中。盎格鲁裔基督徒有时会对文化处境化的讨论感到困扰。他们认为自己表达或实践福音的方式并非“盎格鲁式”的——这就是事情本来的样子。他们认为对传道、敬拜或事工方式的任何改变都会妥协福音。在这一点上，他们可能正犯耶稣所警告的错误——将“人的传统”提升至与圣经真理同等的地位（马可福音7:8）。当人们把自己文化中的时间观念、情感表达方式或沟通风格视为“基督徒应有的行为方式”时，就会发生这种情况。布鲁斯·尼科尔斯（Bruce Nicholls）写道：  
-
-> “当代文化混杂（syncretism）的一个例子是，不自觉地将圣经中的基督教等同于‘美国的生活方式’。这种文化混杂现象常见于西方和第三世界的中产阶级、郊区、保守派福音派教会中，他们似乎没有意识到自己的生活方式更符合资本主义社会的消费原则，而非新约圣经的现实。他们对布道和海外宣教的热情，往往被用来为自己物质主义和自满的生活方式辩护。”  
-
-缺乏文化意识会导致基督徒的生活和事工发生扭曲。生活在个人主义文化（如美国）中的信徒往往忽视深度群体关系的重要性，也不愿意接受属灵的问责和纪律。因此，许多基督徒“跳教会”，在多个教会间游走，却从不正式加入或真正融入任何一个教会。美国基督徒认为教会成员身份是可选的，他们把美国文化中的这种非圣经特征带入自己的基督徒生活。另一方面，生活在更具权威性和父权制文化中的基督徒，往往对圣经关于良心自由和恩典的教导视而不见。他们的领袖更倾向于强调责任，并采取强硬手段，而不是效法耶稣的话：“若有人愿意做首先的，他必做众人末后的，作众人的用人。”（马可福音9:35）  
-
-无法看清自己所受的文化影响，还会带来其他问题。牧师们最常犯的一个基本错误，就是机械地复制那些曾经影响过他们的事工方法和模式。在世界某个地方被某项事工感动后，他们便完全照搬其方法和模式，不做任何调整。如果他们受到一种45分钟逐节解经讲道方式的影响，或是一种特定的唱诗风格，或是某种特定的敬拜程序和时长，他们就会原封不动地照搬这些形式。他们在不知不觉间变得以方法为驱动、以程序为驱动，而不是以神学为驱动。他们是在将自己的事工表达方式处境化于自己，而不是处境化于他们想要触及的人群。  
-
-我曾深受感动地看到世界各地的教会和事工机构研究我们在救赎主长老会（Redeemer Presbyterian Church）的做法，并表达他们的欣赏，甚至希望向我们学习。但与此同时，我也感到失望的是，某些教会只是机械地模仿我们的项目——甚至连我们的公告单都照搬——却没有理解我们背后的神学原则。换句话说，他们没有做文化处境化的艰苦工作，没有反思自身的文化状况和视角，以更好地在他们的文化环境中传递福音。他们也没有花时间思考我们在救赎主教会如何调整我们的事工，以适应美国的城市文化。每个人都会进行文化处境化——但很少有人认真思考自己是如何做的。我们不仅要进行文化处境化，还要思考自己是如何进行的。我们必须让我们的文化处境化过程变得清晰可见，并且有意识地进行，以便自己和他人都能理解。  
-
----
-
-### 讨论与思考问题  
-
-**1.** 本章将文化处境化定义为：“用符合圣经的答案，回应人们在特定时代和环境下提出的生命问题，即使他们可能不愿意听；使用他们能够理解的语言和形式；并通过他们能够感受到力量的方式（即使他们拒绝接受）进行劝导和论证。”请拆解这一定义的四个部分。你在哪些方面做得比较好？在哪些方面容易忽略？  
-
-**2.** 许多福音派信徒为文化处境化辩护时，认为这只是对基督教“次要部分”的调整，而“关键和基本的要素”必须保持不变，否则就会导致混杂或妥协。本章如何论述这种观点的危险性？  
-
-**3.** 作者提到：“没有一种放之四海而皆准的福音表达方式。”你如何理解这句话？你是否认同？为什么？  
-
-**4.** D.A. 卡森（D.A. Carson）指出：“人类所表达的任何真理，都无法以一种超越文化的方式表达。”在你的文化背景（家庭、家乡、国家、种族、教会等）中，你认为自己受到哪些价值观或偏见的影响？这些影响如何塑造了你对真理的表达？你是否曾经无意中忽略某些圣经主题？你是如何意识到这些偏见的？  
-
-**5.** 作者指出，许多牧师犯的一个基本错误是机械地复制他们所受影响的事工模式，而没有根据目标文化调整自己的事工方式。你是否在事工中见过类似的错误？你认为自己需要做些什么，才能有意识地进行文化处境化？  
-
 All gospel ministry and communication are already heavily adapted to a particular culture. So it is important to do contextualization consciously. If we never deliberately think through ways to rightly contextualize gospel ministry to a new culture, we will unconsciously be deeply contextualized to some other culture. Our gospel ministry will be both overadapted to our own culture and underadapted to new cultures at once, which ultimately leads to a distortion of the Christian message.23
 
 The subject of contextualization is particularly hard to grasp for members of socially dominant groups. Because ethnic minorities must live in two cultures — - the dominant culture and their own subculture they frequently become aware of how deeply culture affects the way we perceive things. In the movie Gran Torino, an older blue-collar American named Walt Kowalski (Clint Eastwood) lives alongside an Asian family in a deteriorating Detroit neighborhood. He finds it impossible to understand the cultural forms of the Hmongs, just as the elderly Hmongs (who cannot speak English and live completely within their ethnic enclave) find Walt strange and inexplicable. But the teenage Hmong girl, Sue, is bicultural — she lives in both worlds at once. So she understands and appreciates both Walt and her own parents and grandparents. As a result, she is able to communicate persuasively to both about the other. Isn't this the very thing we are doing whenever we present the truth of the gospel to a culture that has alienated itself from it?
@@ -227,7 +109,7 @@ An inability to see one's own enculturation has other results. One of the most b
 I have been moved to see how churches and ministries around the world have looked at what we do at Redeemer Presbyterian Church and how they have expressed their appreciation and have sought to learn from this ministry. But I have been disappointed to visit some congregations that have imitated our programs-even our bulletins - and haven't grasped the underlying theological principles that animate us. In other words, they haven't done the hard work of contextualization, reflecting on their own cultural situation and perspective to seek to better communicate the gospel to their own context. They have also failed to spend time reflecting on what they see in Redeemer and how we have adapted our ministry to an urban U.S. culture.
 Everyone contextualizes - but few think much about how they are doing it. We should not only contextualize but also think about how we do it. We must make our contextualization processes visible, and then intentional, to ourselves and to others.
 
-> ## QUESTIONS FOR DISCUSSION AND REFLECTION
+> ## QUESTIONS FOR DISCUSSION AND REFLECTION  
 > 1. This chapter defines contextualization as “giving people the Bible's answers, which they may not at all want to hear, to questions about life that people in their particular time and place are asking, in language and forms they can comprehend, and through appeals and arguments with force they can feel, even if they reject them." Unpack the four parts of this definition. Which of these elements of contextualization do you tend to do best? Which do you tend to skip or overlook?
 > 2. Evangelicals often try to defend contextualization by arguing that it is about adapting the less essential parts of Christianity and that syncretism and compromise occur when "the critical and basic elements" of the gospel are lost. In this view, contextualization involves keeping the essentials while flexing on the nonessentials. What is the danger of this approach, according to this chapter?  
 > 3. Keller writes, "There is no universal presentation of the gospel for all people." What do you think is meant by this statement? Do you agree or disagree?  

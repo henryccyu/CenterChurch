@@ -157,3 +157,53 @@ world.
 **Attitudes toward class**. Moralists, when they look at the poor, tend to see their entire plight stemming from a lack of personal responsibility. As a result, they scorn the poor as failures.
 Relativists tend to underemphasize the role of personal responsibility and see the poor as helpless victims needing the experts to save them. The poor themselves either feel like failures or
 angrily blame their problems on others.
+
+The gospel, however, leads us to be humble, free from moral superiority, because we know we were spiritually bankrupt yet saved by Christ's free generosity. It leads us to be gracious,
+not worried too much about people getting what they deserve because we are aware that none of us deserve the grace of Christ. It also inclines us to be respectful of poor Christian believers as
+our brothers and sisters in Christ, people from whom we can learn. The gospel alone can produce a humble respect for and solidarity with the poor (see Pss 140:12; 146:9; Prov 14:31; 21:13;
+22:22-23; 29:7).
+
+In James 1:9-10, the poor Christian "ought to take pride in his high position" but the rich Christian “should take pride in his low position, because he will pass away like a wild flower."
+Here James is using the gospel on his listeners' class-consciousness. Everyone in Christ is at the same time a sinner who deserves death and also an adopted child of God, fully accepted and
+loved. But James proposes that the well-off believer would spiritually benefit by thinking about his or her sinfulness before God, since out in the world he or she gets a lot of acclaim. The poor
+believer, however, would spiritually benefit by thinking about his or her new high spiritual status, since out in the world he or she gets nothing but disdain.
+
+In a remarkable, similar move, Paul tells the Christian slave owner Philemon that his slave, Onesimus, must be treated as a fellow “man and as a brother in the Lord" (Philemon 16).
+Therefore, Paul says, he should welcome and treat his slave "as you would welcome me” (v. 17). By teaching that Christians who understand the gospel should have a radically different way of
+understanding and wielding power, Paul deeply undermines the very institution of slavery. When both master and slave recognize each other as sinners saved by grace and beloved siblings,
+"slavery has been abolished even if its outer institutional shell remains." The gospel "emptied [slavery] of its inner content."6
+
+Most of our problems in life come from a lack of proper orientation to the gospel. Pathologies in the church and sinful patterns in our individual lives ultimately stem from a failure to
+think through the deep implications of the gospel and to grasp and believe the gospel through and through. Put positively, the gospel transforms our hearts and our thinking and changes
+our approaches to absolutely everything. When the gospel is expounded and applied in its fullness in any church, that church will look unique. People will find in it an attractive, electrifying
+balance of moral conviction and compassion.
+
+D. A. Carson writes the following:
+> The gospel is regularly presented not only as truth to be received and believed, but the very power of God to transform (see 1 Cor 2; 1 Thess 2:4; [Rom 1:16–17)...
+One of the most urgently needed things today is a careful treatment of how the gospel, biblically and richly understood, ought to shape everything we do in the local church, all of our
+ethics, all of our priorities.Z
+
+But how does this happen? What does a church that believes in the centrality of the gospel actually look like? How does a church, or even a group of churches, change to become a gospel-
+centered community of faith? There must first be a life-changing recovery of the gospel — a revival in the life of the church and in the hearts of individuals. We call this gospel renewal.
+
+> **QUESTIONS FOR DISCUSSION AND REFLECTION**  
+> 1. Keller writes, "Here's a test: if you think one of these errors [legalism or license] is much more dangerous than the other, you are probably partially participating in the one
+you fear less." Which error have you tended to fear less, and why?
+> 2. Keller writes, "The primary cause of all of our alienations [is] our separation from God." How has the gospel mended this primary ailment in you and how has it helped curb
+the many other symptoms that flow from it? How does this experience prepare you to minister to alienated people?
+> 3. Keller writes, "The gospel addresses our greatest need and brings change and transformation to every area of life." The gospel also treats the alienations that flow from our
+alienation from God. Rehearse, in your own words, how the gospel treats at least three of the following areas:
+>    - discouragement and depression
+>    - love and relationships
+>    - sexuality
+>    - family and parental expectations
+>    - self-control
+>    - racial and cultural differences
+>    - our motive for witness
+>    - obedience to human authority
+>    - guilt and self-image
+>    - joy and humor
+>    - our attitudes toward class
+> 4. Look at the three aspects of the gospel dealt with in this chapter: incarnation/upside-down, atonement/inside-out, and resurrection/forward-back. Compare these to the
+similar outline in the section titled "The Gospel Has Chapters" in chapter 1. How can you sharpen and clarify the way you set the gospel within the story line of the
+Bible?

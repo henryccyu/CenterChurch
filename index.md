@@ -33,7 +33,7 @@
 ### PART 6: MISSIONAL COMMUNITY  
 - [19. THE SEARCH FOR THE MISSIONAL CHURCH](English/chapter19.html)  
 - [20. CENTERING THE MISSIONAL CHURCH](English/chapter20.html)  
-- [Chapter 21](English/chapter21.html)
+- [21. EQUIPPING PEOPLE FOR MISSIONAL LIVING](English/chapter21.html)
 
 ### PART 7: INTEGRATIVE MINISTRY  
 - [Chapter 22](English/chapter22.html)  

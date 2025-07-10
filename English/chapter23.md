@@ -243,6 +243,6 @@ connect people to one another in that community.
 >    - fusions of both form and music-emphasis on the mystical
 >
 >      Have you experienced worship in each of the other traditions? What did you learn from those experiences?
-2. Keller writes, "Many now-historic [worship] traditions were once innovative revisions of an older approach." Have you ever researched the history of your tradition's liturgy (or lack thereof)? Against which prior trends was it a reaction? Which beliefs and preferences informed it?
-3. Consider the seven suggestions for making worship comprehensible to unbelievers. Which of these are you currently doing? What can you begin to do to make your worship more understandable to outsiders?
-4. Do you hear the objection that your church should have "deeper, meatier teaching" in worship? Do you have venues outside the worship service to deal with the "details and distinctions," and do people really hear them there? Can you make your own list of substantial and controversial topics that you "hit hard and often" in your preaching?
+> 2. Keller writes, "Many now-historic [worship] traditions were once innovative revisions of an older approach." Have you ever researched the history of your tradition's liturgy (or lack thereof)? Against which prior trends was it a reaction? Which beliefs and preferences informed it?
+> 3. Consider the seven suggestions for making worship comprehensible to unbelievers. Which of these are you currently doing? What can you begin to do to make your worship more understandable to outsiders?
+> 4. Do you hear the objection that your church should have "deeper, meatier teaching" in worship? Do you have venues outside the worship service to deal with the "details and distinctions," and do people really hear them there? Can you make your own list of substantial and controversial topics that you "hit hard and often" in your preaching?

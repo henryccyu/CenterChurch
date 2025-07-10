@@ -36,9 +36,9 @@
 - [21. EQUIPPING PEOPLE FOR MISSIONAL LIVING](English/chapter21.html)
 
 ### PART 7: INTEGRATIVE MINISTRY  
-- [Chapter 22](English/chapter22.html)  
-- [Chapter 23](English/chapter23.html)  
-- [Chapter 24](English/chapter24.html)  
+- [22. THE BALANCE OF MINISTRY FRONTS](English/chapter22.html)  
+- [23. CONNECTING PEOPLE TO GOD](English/chapter23.html)  
+- [24. CONNECTING PEOPLE TO ONE ANOTHER](English/chapter24.html)  
 - [Chapter 25](English/chapter25.html)  
 - [Chapter 26](English/chapter26.html)  
 

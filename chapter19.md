@@ -1,7 +1,5 @@
 # Chapter 19 THE SEARCH FOR THE MISSIONAL CHURCH
 
-{% toc %} 
-
 ## 本章的主要内容
 
 ### 一、宣教型教会概念的起源

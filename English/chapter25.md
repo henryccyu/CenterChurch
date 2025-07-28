@@ -34,7 +34,7 @@ bank can legally do are, according to the Bible, unjust. The Old Testament makes
 Note that in the Bible, acts that meet basic human needs are not just called acts of mercy (see Luke 10:37), which implies compassion for the undeserving; they are considered acts of justice, which implies giving people their due. Why? We do not all start out with equal privileges and assets. For example, inner-city children, through no fault of their own, may grow up in an environment extremely detrimental to learning. People may argue over who
 is primarily at fault in this situation-the parents, the culture, the government, big business, systemic racism, the list goes on. But no one argues it is the child's fault they are in this situation! Everyone would recognize that as far as the children are concerned, their plight is part of the deep injustice of our world-one of the effects of the fall-that we are duty bound to help improve.
 
-> **LIMITED RESOURCES FOR THE CHURCH'S MISSION**
+> **LIMITED RESOURCES FOR THE CHURCH'S MISSION**  
 > Church leaders who are unconvinced of the necessity of ministries of mercy often point to the reality of limited resources. "It would simply overwhelm the local church to try to meet the endless economic and material needs of the city," they say. "Besides, there are plenty of agencies doing so, while the church alone calls people to conversion through faith in the gospel. The church should use its limited financial resources
 almost exclusively on evangelism and the ministry of the Word."
 >

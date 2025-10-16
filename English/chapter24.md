@@ -17,7 +17,7 @@ him and has loved us even as the Father has loved him" (John 17:23). Jesus says 
 
 As we have often seen in this volume, to be faithful and effective, the church must go beyond "fellowship" to embody a counterculture, giving the world an opportunity to see people united in love who could never have been brought together otherwise, and showing the world how sex, money, and power can be used in life-giving ways:
 
-> **DATING AND CAREER ADVANCEMENT**
+> **DATING AND CAREER ADVANCEMENT**  
 > **The example of dating**. When we think of "sex ethics," we usually think individualistically. What does it mean to follow the biblical sex ethic as a single Christian? It means (1) you should not have sex until you are married, and (2) you should not marry someone who does not share a similar commitment to Christ. But does this exhaust
 what it means to be a light to the world in the area of sex and relationships?
 >

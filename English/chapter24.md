@@ -17,7 +17,7 @@ him and has loved us even as the Father has loved him" (John 17:23). Jesus says 
 
 As we have often seen in this volume, to be faithful and effective, the church must go beyond "fellowship" to embody a counterculture, giving the world an opportunity to see people united in love who could never have been brought together otherwise, and showing the world how sex, money, and power can be used in life-giving ways:
 
-> **DATING AND CAREER ADVANCEMENT**  
+> ### DATING AND CAREER ADVANCEMENT
 > **The example of dating**. When we think of "sex ethics," we usually think individualistically. What does it mean to follow the biblical sex ethic as a single Christian? It means (1) you should not have sex until you are married, and (2) you should not marry someone who does not share a similar commitment to Christ. But does this exhaust
 what it means to be a light to the world in the area of sex and relationships?
 >
@@ -58,7 +58,7 @@ community. Not only can a body of people, pooling their wisdom and experience, c
 ### COMMUNITY AND GROWING TO KNOW GOD BETTER
 Community is the key to true spirituality as we grow to know God by learning to know one another in relationships. In a famous passage, C. S. Lewis describes a very close friendship between himself, Charles Williams, and Ronald Tolkien (better known as J. R. R. Tolkien). After Charles Williams died, Lewis made this observation:
 
-> **PRACTICAL ADVICE FOR DEVELOPING COMMUNITY**  
+> ### PRACTICAL ADVICE FOR DEVELOPING COMMUNITY
 > In a city center, building community is the most challenging of the four ministry fronts, largely because of the mobility of the population. City centers are very expensive and difficult places to live. Most people are working enormous hours, and most people see themselves as living there only temporarily. All of this makes it difficult to build community.
 The most practical way to build community is by casting a city vision with a positive view of the city, as we discussed in chapter 14 ("The Gospel for the City").
 >
@@ -155,7 +155,7 @@ others (Gal 5:26; 6:3-5). We do not earn our worth through approval from people 
 Strong community is formed by powerful common experiences, as when people survive a flood or fight together in a battle. When they emerge on the other side, this shared experience becomes the basis for a deep, permanent bond that is stronger than blood. The more intense the experience, the more intense the bond. When we experience Christ's radical grace through repentance and faith, it becomes the most intense, foundational event of our
 lives. Now, when we meet someone from a different culture, race, or social class who has received the same grace, we see someone who has been through the same life-and-death experience. In Christ, we have both spiritually died and been raised to new life (Rom 6:4-6; Eph 2:1-6). And because of this common experience of rescue, we now share an identity marker even more indelible than the ties that bind us to our family, our race, or our culture.
 
-> **RESOURCES FOR DEVELOPING COMMUNITY**
+> ### RESOURCES FOR DEVELOPING COMMUNITY
 > For path-breaking thoughts on how community (especially worship) is related to spiritual formation, worldview instruction, and discipleship, see James K. A. Smith, Desiring the Kingdom: Worship, Worldview, and Cultural Formation (Grand Rapids: Baker, 2009).
 >
 > For practical insights on life in community, see Tim Chester and Steve Timmis, Total Church (Nottingham, UK: Inter-Varsity, 2007); iden, Everyday Church (Nottingham, UK: Inter-Varsity, 2011); Jonathan Wilson-Hart-grove, The New Monasticism: What It Has to Say to Today's Church (Grand Rapids: Brazos, 2008).
@@ -177,7 +177,7 @@ rooted more in who they are in Christ than in their family or class. As a result
 We often think of community as simply one more thing we have to follow in the rules of behavior. "OK, I have to read my Bible, pray, stay sexually pure- and I need to go to fellowship." But community is best understood as the way we are to do all that Christ told us to do in the world. Community is more than just the result of the preaching of the gospel; it is itself a declaration and expression of the gospel. It is the demonstration of the good news of
 freedom in Christ through the evident display of our transformed character and our life together. It is itself part of the good news, for the good news is this: This is what Christ has won for you on the cross-a new life together with the people of God. Once you were alienated from others, but now you have been brought near.
 
-> **QUESTIONS FOR DISCUSSION AND REFLECTION**
+> ### QUESTIONS FOR DISCUSSION AND REFLECTION
 > 1. Keller writes, "The essence of becoming a disciple is, to put it colloquially, becoming like the people we hang out with the most." Does this describe your own experience? How has the cominunity you belong to uniquely shaped and directed your own growth as a Christian? Who should you hang out with more often?
 > 2. Keller writes, "Exceptional character in individuals cannot prove the reality of Christianity... What atheism and other religions cannot produce is the kind of loving community that the gospel produces." Consider your Christian witness as a community. What are some of the ways in which your church community lives and relates to one another in distinctly Christian ways? How are you a witness to the surrounding
 culture?

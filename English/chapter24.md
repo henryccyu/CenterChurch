@@ -58,7 +58,7 @@ community. Not only can a body of people, pooling their wisdom and experience, c
 ### COMMUNITY AND GROWING TO KNOW GOD BETTER
 Community is the key to true spirituality as we grow to know God by learning to know one another in relationships. In a famous passage, C. S. Lewis describes a very close friendship between himself, Charles Williams, and Ronald Tolkien (better known as J. R. R. Tolkien). After Charles Williams died, Lewis made this observation:
 
-> **PRACTICAL ADVICE FOR DEVELOPING COMMUNITY**
+> **PRACTICAL ADVICE FOR DEVELOPING COMMUNITY**  
 > In a city center, building community is the most challenging of the four ministry fronts, largely because of the mobility of the population. City centers are very expensive and difficult places to live. Most people are working enormous hours, and most people see themselves as living there only temporarily. All of this makes it difficult to build community.
 The most practical way to build community is by casting a city vision with a positive view of the city, as we discussed in chapter 14 ("The Gospel for the City").
 >

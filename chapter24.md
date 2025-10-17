@@ -43,6 +43,16 @@
 
 路易斯的观点是，即使是人这种丰富和多面的存在，也无法仅通过一对一的关系被完全了解。你以为你了解一个人，但你一个人无法带出一个人身上所有的东西。你需要和别人一起看到这个人。如果对于另一个人来说是这样，那么对于主来说，就更是如此了。你无法靠自己真正认识耶稣。
 
+> ### 发展社区的实用建议
+>
+> 在市中心，建立社区是四个事工前沿中最具挑战性的，主要是因为人口的流动性。市中心是非常昂贵且难以居住的地方。大多数人工作时间极长，而且大多数人认为自己只是暂时住在那里。所有这些都使得建立社区变得困难。建立社区最实用的方法是传递城市异象，对城市持积极看法，正如我们在第14章("给城市的福音")中讨论的那样。
+>
+> 找到方法鼓励基督徒在城市定居并养育他们的家庭(如耶利米书29章所述)。请那些原本打算待两年的人延长到三年或四年。如果有人原本只打算待到完成学业，请他们留下来并在这个城市找到第一份工作。
+>
+> 除了传统的四到十人的小组，许多城市教会还会发现中等规模的"堂区"或"中间层"小组对建立社区很有帮助。这些小组通常有二十到六十人，他们住在同一个社区、从事相同的职业，或在城市中有共同的热忱。他们定期一起用餐，并思考如何接触和服务周围的文化、职业或地理社区。
+>
+> 除非中等规模和小组的人数至少达到周日聚集敬拜和听道人数的一半，否则你的教会正朝着成为消费中心而非社区的方向发展。
+
 ## 教会敬虔与“教会复兴主义”
 因此，基督徒社群可能是我们向世界作见证、塑造像基督的品格、实践独特的基督徒生活方式，并个人性地认识神 的主要方式。但我们必须明确，我们所说的不仅仅是基督徒之间非正式的个体关系，也包括对制度化教会的成员身份和参与，他们在领袖的带领下聚集，领受圣道的宣讲和施行洗礼及主餐的圣礼。由教会赋予恩赐、预备和授权的人宣讲圣道，以及参与主餐——带着这一切带来的自我省察和集体问责——是基督徒社群提供见证、属灵塑造和与神相交的关键和不可替代的方式。
 
@@ -97,11 +107,11 @@
 强大的社群是由强大的共同经历形成的，就像人们一起度过洪水或一起战斗一样。当他们从另一边出来时，这种共同的经历就成了比血缘更深的、永久纽带的基础。经历越强烈，纽带就越强烈。当我们通过悔改和信心经历基督的激进恩典时，它就成为我们生命中最强烈、最基础的事件。现在，当我们遇到一个来自不同文化、种族 或社会阶层 却领受了相同恩典的人时，我们看到一个经历了相同的生死经历的人。在基督里，我们都属灵上死了，又被提升到新的生命（罗马书 6:4-6；以弗所书 2:1-6）。由于这种共同的被拯救经历，我们现在拥有一个比将我们与家人、种族或文化联系在一起的纽带更不可磨灭的身份标记。
 
 ## 发展社群的资源
-关于社群（尤其是敬拜）如何与属灵塑造、世界观教导和门训相关的前瞻性思考，请参阅 James K. A. Smith 的 Desiring the Kingdom: Worship, Worldview, and Cultural Formation (Grand Rapids: Baker, 2009)。  
+关于社群（尤其是敬拜）如何与属灵塑造、世界观教导和门训相关的前瞻性思考，请参阅 James K. A. Smith 的 Desiring the Kingdom: Worship， Worldview， and Cultural Formation (Grand Rapids: Baker， 2009)。  
 
-关于社群生活的实用见解，请参阅 Tim Chester 和 Steve Timmis 的 Total Church (Nottingham, UK: Inter-Varsity, 2007)；他们的 Everyday Church (Nottingham, UK: Inter-Varsity, 2011)；Jonathan Wilson-Hartgrove 的 The New Monasticism: What It Has to Say to Today’s Church (Grand Rapids: Brazos, 2008)。  
+关于社群生活的实用见解，请参阅 Tim Chester 和 Steve Timmis 的 Total Church (Nottingham， UK: Inter-Varsity， 2007)；他们的 Everyday Church (Nottingham， UK: Inter-Varsity， 2011)；Jonathan Wilson-Hartgrove 的 The New Monasticism: What It Has to Say to Today’s Church (Grand Rapids: Brazos， 2008)。  
 
-关于建立社群的九个圣经实践的概述，请参阅 Timothy Keller 的 Gospel in Life Study Guide: Grace Changes Everything (Grand Rapids: Zondervan, 2010), 59–72。
+关于建立社群的九个圣经实践的概述，请参阅 Timothy Keller 的 Gospel in Life Study Guide: Grace Changes Everything (Grand Rapids: Zondervan， 2010)， 59–72。
  * 肯定彼此的优势、能力和恩赐
  * 肯定彼此在基督里平等的地位
  * 通过可见的感情肯定彼此

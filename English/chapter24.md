@@ -58,6 +58,10 @@ community. Not only can a body of people, pooling their wisdom and experience, c
 ### COMMUNITY AND GROWING TO KNOW GOD BETTER
 Community is the key to true spirituality as we grow to know God by learning to know one another in relationships. In a famous passage, C. S. Lewis describes a very close friendship between himself, Charles Williams, and Ronald Tolkien (better known as J. R. R. Tolkien). After Charles Williams died, Lewis made this observation:
 
+> _In each of my friends there is something that only some other friend can fully bring out. By myself I am not large enough to call the whole man into activity; I want other lights than my own to show all his facets. Now that Charles is dead, I shall never again see Ronald's reaction to a specifically Caroline joke. Far from having more of Ronald, having him "to myself" now that Charles is away, I have less of Ronald. Hence true Friendship is the least jealous of loves. Two friends delight to be joined by a third, and three by a fourth... We possess each friend not less but more as the number of those with whom we share him increases. In this, Friendship exhibits a glorious "nearness by resemblance" to Heaven... For every soul, seeing Him in her own way, communicates that unique vision to all the rest. That, says an old author, is why the Seraphim in Isaiah's vision are crying "Holy, Holy, Holy" to one another (Isa 6:3). The more we thus share the Heavenly Bread between us, the more we shall all have.¹_
+
+Lewis's point is that even a human being is too rich and multifaceted a being to be fully known one-on-one. You think you know someone, but you alone can't bring out all that is in a person. You need to see the person with others. And if this is true with another human being, how much more so with the Lord? You can't really know Jesus by yourself.
+
 > ### PRACTICAL ADVICE FOR DEVELOPING COMMUNITY
 > In a city center, building community is the most challenging of the four ministry fronts, largely because of the mobility of the population. City centers are very expensive and difficult places to live. Most people are working enormous hours, and most people see themselves as living there only temporarily. All of this makes it difficult to build community.
 The most practical way to build community is by casting a city vision with a positive view of the city, as we discussed in chapter 14 ("The Gospel for the City").
@@ -68,12 +72,6 @@ The most practical way to build community is by casting a city vision with a pos
 vocational, or geographic community.
 >
 > Unless the number of people in midsize and small groups is at least half the number of the people who gather for worship and teaching on Sunday, your church is heading in the direction of being a consumer center rather than a community.
-
-_In each of my friends there is something that only some other friend can fully bring out. By myself I am not large enough to call the whole man into activity; I want other lights than my own to show all his facets. Now that Charles is dead, I shall never again see Ronald's reaction to a specifically Caroline joke. Far from having more of Ronald, having him "to myself" now that Charles is away, I have less of Ronald. Hence true Friendship is the least jealous of
-loves. Two friends delight to be joined by a third, and three by a fourth... We possess each friend not less but more as the number of those with whom we share him increases. In this, Friendship exhibits a glorious "nearness by resemblance" to Heaven... For every soul, seeing Him in her own way, communicates that unique vision to all the rest. That, says an old author, is why the Seraphim in Isaiah's vision are crying "Holy, Holy, Holy" to one another (Isa
-6:3). The more we thus share the Heavenly Bread between us, the more we shall all have.¹_
-
-Lewis's point is that even a human being is too rich and multifaceted a being to be fully known one-on-one. You think you know someone, but you alone can't bring out all that is in a person. You need to see the person with others. And if this is true with another human being, how much more so with the Lord? You can't really know Jesus by yourself.
 
 ## CHURCHLY PIETY AND "ECCLESIAL REVIVALISM"
 Christian cominunity, then, is perhaps the main way that we bear witness to the world, form Christlike character, practice a distinctively Christian style of life, and know God personally. But we must make it clear that we are not speaking merely of informal and individual relationships between Christians but also of membership and participation in the institutional church, gathered under its leaders for the preaching of the Word and the administering of the

@@ -39,11 +39,11 @@
 - [22. THE BALANCE OF MINISTRY FRONTS](English/chapter22.html)  ([中文](chapter22.html))
 - [23. CONNECTING PEOPLE TO GOD](English/chapter23.html)  ([中文](chapter23.html))
 - [24. CONNECTING PEOPLE TO ONE ANOTHER](English/chapter24.html)  ([中文](chapter24.html))
-- [Chapter 25](English/chapter25.html) ([中文](chapter25.html))
-- [Chapter 26](English/chapter26.html) ([中文](chapter26.html))
+- [25. CONNECTING PEOPLE TO THE CITY](English/chapter25.html) ([中文](chapter25.html))
+- [26. CONNECTING PEOPLE TO THE CULTURE](English/chapter26.html) ([中文](chapter26.html))
 
 ### Part 8: MOVEMENT DYNAMICS
-- [Chapter 27](English/chapter27.html) ([中文](chapter27.html))
-- [Chapter 28](English/chapter28.html) ([中文](chapter28.html))
-- [Chapter 29](English/chapter29.html) ([中文](chapter29.html))
-- [Chapter 30](English/chapter30.html) ([中文](chapter30.html))
+- [27. MOVEMENTS AND INSTITUTIONS](English/chapter27.html) ([中文](chapter27.html))
+- [28. THE CHURCH AS AN ORGANIZED ORGANISM](English/chapter28.html) ([中文](chapter28.html))
+- [29. CHURCH PLANTING AS A MOVEMENT DYNAMIC](English/chapter29.html) ([中文](chapter29.html))
+- [30. THE CITY AND THE GOSPEL ECOSYSTEM](English/chapter30.html) ([中文](chapter30.html))

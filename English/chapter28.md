@@ -153,6 +153,7 @@ On the surface, the description of the church as a movement seems far more attra
 (and therefore negotiable). The Bible instructs churches to have elders, for example, but it says virtually nothing about how this team is to be organized. A key to navigating the creative tension of Scripture is to avoid allowing humanly made structures to become idols-relative, finite things elevated to the status of unquestioned divine authority.
 
 For a movement to stay a movement, then, it needs to achieve and maintain balance as an “organized organism." On the continuum below, a movement-driven church would need to have its X toward the right. Since churches always migrate toward institutionalism, they often must be brought back toward a movement dynamic.
+
 <img width="436" height="34" alt="image" src="https://github.com/user-attachments/assets/492600a3-39ea-425d-abf3-aad3e6f2d0be" />
 
 A practical key to maintaining an organized organism is experiencing a season of renewal in the church or organization that parallels the way an individual person is spiritually renewed. There must be times for what the Bible calls "covenant renewal." Israel was brought into its original covenant relationship with God at Mount Sinai in Exodus 19-20, and the nation was formed as God's people and called to live in a particular way in the world.

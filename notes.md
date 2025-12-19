@@ -7,8 +7,8 @@ Tim Keller的《Center Church》是关于"城市宣教的神学异象"的重要�
 这本书分为三个主要部分:
 
 ### 1. **福音(Gospel)**
-- 强调福音既要对抗道德主义(moralism),也要对抗相对主义(relativism)
-- "福音的中心性" - 福音不仅是入门,更是基督徒生活的持续动力
+- 强调福音既要对抗道德主义(moralism)，也要对抗相对主义(relativism)
+- "福音的中心性" - 福音不仅是入门，更是基督徒生活的持续动力
 
 ### 2. **城市(City)**
 - 为什么要关注城市宣教
@@ -25,40 +25,40 @@ Keller在书中提出的关键概念:
 
 ### **"中心化教会"(Centered Church)理念**
 - 不是"有界集"(bounded set) - 用教义边界来定义谁在内谁在外
-- 而是"中心集"(centered set) - 以福音为中心,允许在次要问题上有多样性
-- 在核心教义上正统,在应用上灵活
+- 而是"中心集"(centered set) - 以福音为中心，允许在次要问题上有多样性
+- 在核心教义上正统，在应用上灵活
 
 ### **三种平衡**
 Keller强调教会需要在三个张力中保持平衡:
 
 1. **福音神学的平衡**
-   - 既重视上帝主权(改革宗),也重视人的责任
-   - 既强调称义,也重视成圣
+   - 既重视上帝主权(改革宗)，也重视人的责任
+   - 既强调称义，也重视成圣
 
 2. **处境化的平衡**
-   - 既忠于圣经(不妥协),也要与文化对话(相关性)
+   - 既忠于圣经(不妥协)，也要与文化对话(相关性)
    - 避免"过度处境化"和"处境化不足"
 
 3. **城市异象的平衡**
-   - 既服侍穷人,也接触文化精英
-   - 既关注个人救赎,也追求城市更新(shalom)
+   - 既服侍穷人，也接触文化精英
+   - 既关注个人救赎，也追求城市更新(shalom)
 
 ### **关于教会增长模式**
 
 Keller特别批评了两种极端:
-- **传统主义** - 只守护教义,拒绝文化互动
+- **传统主义** - 只守护教义，拒绝文化互动
 - **实用主义** - 为了增长而妥协福音
 
 他提出的是:
 - **福音中心的更新** - 让福音不断更新教会的每个层面
 - **有机增长** - 通过植堂网络而非单一超大教会
-- **运动思维** - 不只建立教会,而是培育能产生更多教会的运动
+- **运动思维** - 不只建立教会，而是培育能产生更多教会的运动
 
 ### **对不同教会模式的看法**
 
-虽然Keller没有系统地列举各种模式,但他隐含地批评了:
-- **mega-church模式** - 可能过于依赖明星牧师,难以复制
-- **吸引型教会** - 可能在处境化上走得太远,稀释福音
+虽然Keller没有系统地列举各种模式，但他隐含地批评了:
+- **mega-church模式** - 可能过于依赖明星牧师，难以复制
+- **吸引型教会** - 可能在处境化上走得太远，稀释福音
 - **隔离型教会** - 与城市文化脱节
 
 他推崇的是:
@@ -70,16 +70,16 @@ Keller特别批评了两种极端:
 ## Redeemer长老会的实践
 
 Keller自己在纽约建立的Redeemer长老会实践了这些理念:
-- 采用长老制,但非常强调小组和社区
-- 高质量的讲道和敬拜,却不炫耀
-- 服侍城市的专业人士,同时关注穷人
+- 采用长老制，但非常强调小组和社区
+- 高质量的讲道和敬拜，却不炫耀
+- 服侍城市的专业人士，同时关注穷人
 - 不断植堂 - 在纽约和全球建立了数十间教会
 
 ## 核心金句
 
 书中一些关键的话:
-- "The gospel is not just the ABCs but the A to Z of the Christian life"(福音不只是ABC,而是从A到Z)
-- "A church must be more deeply and practically committed to deeds of compassion and social justice than traditional liberal churches, AND more deeply and practically committed to evangelism and conversion than traditional fundamentalist churches"
+- "The gospel is not just the ABCs but the A to Z of the Christian life"(福音不只是ABC，而是从A到Z)
+- "A church must be more deeply and practically committed to deeds of compassion and social justice than traditional liberal churches， AND more deeply and practically committed to evangelism and conversion than traditional fundamentalist churches"
 
 ---
 
@@ -114,7 +114,7 @@ Keller提出城市宣教的神学和实践理由：
 - 忙碌的生活方式
 - "我们不需要宗教"的心态
 
-**Keller的论点**： 正因为城市既战略重要又充满挑战，教会必须"进入城市，为了城市"(for the city, not just in the city)。
+**Keller的论点**： 正因为城市既战略重要又充满挑战，教会必须"进入城市，为了城市"(for the city， not just in the city)。
 
 ## 2. **圣经中的城市神学**
 
